@@ -1,6 +1,12 @@
 <?xml version='1.0' encoding='utf-8'?>
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/</loc>
+    <lastmod>2022-08-05</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
     <loc>https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/</loc>
     <lastmod>2024-01-08</lastmod>
     <changefreq>weekly</changefreq>
@@ -609,12 +615,6 @@
   <url>
     <loc>https://music.allwomenstalk.com/songs-to-celebrate-summer/</loc>
     <lastmod>2022-08-04</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
-    <loc>https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/</loc>
-    <lastmod>2022-08-05</lastmod>
     <changefreq>weekly</changefreq>
     <priority>0.8</priority>
   </url>
