@@ -3,7 +3,7 @@ title: "7 Mesmerizing TV Performances by Musicians in 2013 ..."
 description: "Katy Perry – 2013 Video Music Awards; Lady Gaga – 2013 Video Music Awards; Bob Marley Tribute – 2013 Grammy Awards; “Once” Cast – 2013 Tony Awards; Alicia Keys & Maroon 5 – 2013 Grammy Awards; More ..."
 url: "https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Mesmerizing TV Performances by Musicians in 2013 ...
@@ -43,15 +43,15 @@ As a fan of the French novel, play and movie of the same name by Victor Hugo, th
 ## Related Posts
 
 - [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
-- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
-- [inspirational song for students](https://music.allwomenstalk.com/amazing-music-videos-that-are-such-an-inspiration-for-all-of-us/)
-- [keanu reeves paula abdul movie](https://music.allwomenstalk.com/greatest-music-videos-inspired-by-movies-that-you-will-love/)
-- [dancetunes](https://music.allwomenstalk.com/of-my-all-time-favorite-dance-tunes/)
-- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
 - [good songs for a halloween playlist](https://music.allwomenstalk.com/songs-that-need-to-be-on-your-halloween-playlist/)
-- [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
+- [dancetunes](https://music.allwomenstalk.com/of-my-all-time-favorite-dance-tunes/)
 - [nanny songs](https://music.allwomenstalk.com/awesome-songs-to-listen-to-while-babysitting/)
+- [keanu reeves paula abdul movie](https://music.allwomenstalk.com/greatest-music-videos-inspired-by-movies-that-you-will-love/)
+- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
+- [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
 - [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
+- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
+- [inspirational song for students](https://music.allwomenstalk.com/amazing-music-videos-that-are-such-an-inspiration-for-all-of-us/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [10 Broadway Shows of 2011 You Have to See ...](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
 

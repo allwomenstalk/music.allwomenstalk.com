@@ -3,7 +3,7 @@ title: "7 Empowering Songs from India Arie ..."
 description: "Beautiful Flower; The Heart of the Matter; I Am Not My Hair; A Beautiful Day; I Am Ready for Love; More ..."
 url: "https://music.allwomenstalk.com/empowering-songs-from-india-arie/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Empowering Songs from India Arie ...
@@ -42,16 +42,16 @@ Do you listen to India Arie? What do you think of her songs?
 
 ## Related Posts
 
+- [songs about positive body image](https://music.allwomenstalk.com/body-positive-songs-that-will-make-you-feel-gorgeous/)
 - [yiruma family](https://music.allwomenstalk.com/piano-ballads-from-yiruma-thatll-put-your-mind-at-ease/)
-- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
-- [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
-- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
-- [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
-- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
+- [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
 - [no change of heart a change in me](https://music.allwomenstalk.com/broadway-songs-that-are-relatable/)
 - [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
-- [songs about positive body image](https://music.allwomenstalk.com/body-positive-songs-that-will-make-you-feel-gorgeous/)
-- [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
+- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
+- [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
+- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
+- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
+- [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 

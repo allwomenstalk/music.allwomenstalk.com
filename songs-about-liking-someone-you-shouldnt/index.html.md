@@ -3,7 +3,7 @@ title: "7 Songs about Liking Someone You Shouldnt ..."
 description: "Mr Watson by Kesha; End of Me by a Day to Remember; How Can I Not Love You by Joy Enriquez; Untouchable by Taylor Swift; I Hate Everything about You by Three Days Grace; More ..."
 url: "https://music.allwomenstalk.com/songs-about-liking-someone-you-shouldnt/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Songs about Liking Someone You Shouldnt ...
@@ -42,16 +42,16 @@ Don't feel bad if you're crushing on someone you know you shouldn't like. It'll 
 
 ## Related Posts
 
-- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
-- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
 - [over and over song](https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/)
 - [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
-- [songs with word love](https://music.allwomenstalk.com/whats-the-definition-of-love-these-songs-explain-it-perfectly/)
+- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
+- [songs about showing up](https://music.allwomenstalk.com/love-is-just-around-the-corner-songs-about-that-special-someone-coming-along/)
+- [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
+- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
+- [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
 - [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
 - [angry playlist names](https://music.allwomenstalk.com/upset-angry-elated-a-spotify-playlist-fit-for-every-mood/)
-- [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
-- [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
-- [songs about showing up](https://music.allwomenstalk.com/love-is-just-around-the-corner-songs-about-that-special-someone-coming-along/)
+- [songs with word love](https://music.allwomenstalk.com/whats-the-definition-of-love-these-songs-explain-it-perfectly/)
 - [9 Songs about Unrequited Love You Cant Resist List...](https://allwomenstalk.com/10-best-broken-heart-songs/)
 - [10 Things Girls Arent Supposed to Love ...](https://allwomenstalk.com/10-things-girls-arent-supposed-to-love/)
 

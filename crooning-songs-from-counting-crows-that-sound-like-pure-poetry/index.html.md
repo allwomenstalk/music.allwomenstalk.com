@@ -3,7 +3,7 @@ title: "9 Crooning Songs from Counting Crows That Sound like Pure Poetry ..."
 description: "Round Here; Colorblind; Lightning; Rain King; A Long December; More ..."
 url: "https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Crooning Songs from Counting Crows That Sound like Pure Poetry ...
@@ -50,16 +50,16 @@ Clearly I've got a thing for August and Everything After, which remains one of m
 
 ## Related Posts
 
-- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
-- [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
-- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
-- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
-- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
-- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
 - [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
+- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
+- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
+- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
 - [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
 - [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
-- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
+- [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
+- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
+- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
+- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 - [8 Poems I Love ...](https://allwomenstalk.com/8-poems-i-love/)
 

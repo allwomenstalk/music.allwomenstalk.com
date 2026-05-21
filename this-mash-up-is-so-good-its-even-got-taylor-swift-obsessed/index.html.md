@@ -3,7 +3,7 @@ title: "This 1989 Mash-up is so Good Its Even Got Taylor Swift Obsessed ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # This 1989 Mash\-up is so Good Its Even Got Taylor Swift Obsessed ...
@@ -14,16 +14,16 @@ What'd you think? If you love it as much as I do, go follow Louisa (@LouisaWendo
 
 ## Related Posts
 
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
-- [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
-- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
 - [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
 - [exhilirating](https://music.allwomenstalk.com/exhilarating-songs-to-listen-to-in-the-car/)
-- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
+- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
+- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
+- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
+- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
+- [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
 - [TMF 2006 Video Mashup ...](https://allwomenstalk.com/tmf-video-mashup/)
 - [Mark Ronsons Version Megamix ...](https://allwomenstalk.com/mark-ronsons-version-megamix/)
 

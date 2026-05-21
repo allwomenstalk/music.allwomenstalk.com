@@ -3,7 +3,7 @@ title: "12 Classic Songs for Your Holiday Playlist ..."
 description: "The Christmas Song – Nat King Cole; Santa Baby – Eartha Kitt; All I Want for Christmas is You – Mariah Carey; Silent Night – Boyz II Men; ‘Let It Snow’ – Frank Sinatra; More ..."
 url: "https://music.allwomenstalk.com/classic-songs-for-your-holiday-playlist/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 12 Classic Songs for Your Holiday Playlist ...
@@ -63,15 +63,15 @@ Now you're ready with a soundtrack for every festive holiday event you may have,
 ## Related Posts
 
 - [happy fun music](https://music.allwomenstalk.com/fun-music-festivals-that-keep-you-busy-and-happy/)
+- [catchy theme song](https://movies.allwomenstalk.com/tv-shows-with-catchy-theme-songs-thatll-stay-in-your-head/)
+- [hot boy bands](https://music.allwomenstalk.com/amazing-boy-bands-were-head-over-heels-in-love-with/)
+- [best rap albums of 2013](https://music.allwomenstalk.com/best-albums-of-that-we-absolutely-love/)
+- [biggest music comebacks](https://music.allwomenstalk.com/artists-that-made-recent-musical-comebacks/)
+- [music websites](https://music.allwomenstalk.com/fantastic-music-websites-you-have-to-bookmark/)
 - [simple disney songs](https://music.allwomenstalk.com/most-inspirational-disney-songs-to-cheer-you-up-in-no-time/)
 - [iconic throwback songs](https://music.allwomenstalk.com/best-throwback-songs-for-when-you-feel-nostalgic/)
-- [biggest music comebacks](https://music.allwomenstalk.com/artists-that-made-recent-musical-comebacks/)
-- [catchy theme song](https://movies.allwomenstalk.com/tv-shows-with-catchy-theme-songs-thatll-stay-in-your-head/)
-- [best rap albums of 2013](https://music.allwomenstalk.com/best-albums-of-that-we-absolutely-love/)
-- [music websites](https://music.allwomenstalk.com/fantastic-music-websites-you-have-to-bookmark/)
-- [dimash concert 2024](https://music.allwomenstalk.com/artists-with-the-best-live-performances/)
-- [hot boy bands](https://music.allwomenstalk.com/amazing-boy-bands-were-head-over-heels-in-love-with/)
 - [7 Most Inspirational Eminem Songs for when Youre F...](https://music.allwomenstalk.com/most-inspirational-eminem-songs-for-when-youre-feeling-low_/)
+- [dimash concert 2024](https://music.allwomenstalk.com/artists-with-the-best-live-performances/)
 - [15 Songs for a Road Trip ...](https://allwomenstalk.com/15-songs-for-a-road-trip/)
 - [9 of My Favorite Christmas Carols ...](https://allwomenstalk.com/9-of-my-favorite-christmas-carols/)
 

@@ -3,7 +3,7 @@ title: "Let the Music Heal Your Soul - 9 Songs to Help You Get over Your Crush .
 description: "The King of Wishful Thinking by New Found Glory; Straightjacket Feeling by the All American Rejects; I Can do Better by Avril Lavigne; Good Girl by Carrie Underwood; Love Drunk by Boys like Girls; More ..."
 url: "https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/"
 category: "music"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Let the Music Heal Your Soul \- 9 Songs to Help You Get over Your Crush ...
@@ -53,12 +53,12 @@ You're stronger than you give yourself credit for. Even though you're upset abou
 - [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
 - [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
 - [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
-- [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
 - [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
 - [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
-- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
+- [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
 - [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
 - [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
+- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 - [9 Ways to Get over Your Ex in a Week ...](https://love.allwomenstalk.com/ways-to-get-over-your-ex-in-a-week/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 - [8 Songs to Feel Better after a Break up ...](https://love.allwomenstalk.com/songs-to-feel-better-after-a-break-up/)
