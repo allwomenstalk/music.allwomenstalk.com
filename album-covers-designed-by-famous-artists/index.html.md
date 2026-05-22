@@ -3,7 +3,7 @@ title: "7 Album Covers Designed by Famous Artists ..."
 description: "The Velvet Underground – the Velvet Underground & Nico; Lady Gaga - ARTPOP; Blur – Think Tank; Jackie Gleason – Lonesome Echo; The Used – in Love and Death; More ..."
 url: "https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/"
 category: "music"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Album Covers Designed by Famous Artists ...
@@ -56,16 +56,16 @@ These album covers are truly pieces of art. Each of these covers are iconic for 
 
 ## Related Posts
 
-- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
-- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
-- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
-- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
-- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
 - [divergent soundtrack tracklist](https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/)
-- [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
+- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
+- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
 - [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
+- [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
+- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
+- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
+- [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
+- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
 - [7 Cool Celebrity Tattoos ...](https://allwomenstalk.com/7-cool-celebrity-tattoos/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

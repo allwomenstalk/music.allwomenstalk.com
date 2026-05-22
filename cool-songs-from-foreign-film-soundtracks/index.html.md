@@ -3,7 +3,7 @@ title: "7 Cool Songs from Foreign Film Soundtracks ..."
 description: "Monsoon Wedding; Amelie; Once; Spirited Away; Henry V; More ..."
 url: "https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/"
 category: "music"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Cool Songs from Foreign Film Soundtracks ...
@@ -61,16 +61,16 @@ So there you have it kittens, some awesome soundtracks and scores to rock out to
 
 ## Related Posts
 
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
-- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
-- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
-- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
-- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
 - [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
-- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
+- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
+- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
 - [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
+- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
+- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [7 Unforgettable John Williams Soundtracks ...](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
 

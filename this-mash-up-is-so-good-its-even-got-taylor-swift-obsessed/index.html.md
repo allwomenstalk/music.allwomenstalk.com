@@ -3,7 +3,7 @@ title: "This 1989 Mash-up is so Good Its Even Got Taylor Swift Obsessed ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/"
 category: "music"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # This 1989 Mash\-up is so Good Its Even Got Taylor Swift Obsessed ...
@@ -15,15 +15,15 @@ What'd you think? If you love it as much as I do, go follow Louisa (@LouisaWendo
 ## Related Posts
 
 - [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
-- [exhilirating](https://music.allwomenstalk.com/exhilarating-songs-to-listen-to-in-the-car/)
-- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
-- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
 - [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
+- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [exhilirating](https://music.allwomenstalk.com/exhilarating-songs-to-listen-to-in-the-car/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
+- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
+- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
 - [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
+- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
 - [TMF 2006 Video Mashup ...](https://allwomenstalk.com/tmf-video-mashup/)
 - [Mark Ronsons Version Megamix ...](https://allwomenstalk.com/mark-ronsons-version-megamix/)
 

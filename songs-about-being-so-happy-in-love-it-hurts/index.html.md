@@ -3,7 +3,7 @@ title: "7 Songs about Being so Happy in Love It Hurts ..."
 description: "You Make Me Smile by Uncle Kracker; James Dean and Audrey Hepburn by Sleeping with Sirens; The Way by Clay Aiken; Marry Me by Jason Derulo; Adore You by Miley Cyrus; More ..."
 url: "https://music.allwomenstalk.com/songs-about-being-so-happy-in-love-it-hurts/"
 category: "music"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Songs about Being so Happy in Love It Hurts ...
@@ -42,16 +42,16 @@ Love is a magical emotion, so if you're fortunate enough to feel it, don't take 
 
 ## Related Posts
 
-- [when you like someone](https://music.allwomenstalk.com/songs-about-liking-someone-you-shouldnt/)
-- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
-- [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
 - [songs about showing up](https://music.allwomenstalk.com/love-is-just-around-the-corner-songs-about-that-special-someone-coming-along/)
-- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
-- [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
+- [when you like someone](https://music.allwomenstalk.com/songs-about-liking-someone-you-shouldnt/)
 - [angry playlist names](https://music.allwomenstalk.com/upset-angry-elated-a-spotify-playlist-fit-for-every-mood/)
-- [over and over song](https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/)
+- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
 - [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
+- [over and over song](https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/)
+- [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
 - [songs with word love](https://music.allwomenstalk.com/whats-the-definition-of-love-these-songs-explain-it-perfectly/)
+- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
+- [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
 - [8 Songs to Feel Better after a Break up ...](https://love.allwomenstalk.com/songs-to-feel-better-after-a-break-up/)
 - [7 Different Kinds of Love ...](https://allwomenstalk.com/7-different-kinds-of-love/)
 

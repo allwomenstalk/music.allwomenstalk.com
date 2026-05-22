@@ -3,7 +3,7 @@ title: "9 Prince Songs Every Millennial Should Know ..."
 description: "When Doves Cry; Erotic City; Purple Rain; Sometimes It Snows in April; Little Red Corvette; More ..."
 url: "https://music.allwomenstalk.com/prince-songs-every-millennial-should-know/"
 category: "music"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Prince Songs Every Millennial Should Know ...
@@ -50,16 +50,16 @@ RIP PRINCE ROGERS NELSON
 
 ## Related Posts
 
-- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
-- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
+- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
 - [rap songs about resilience](https://music.allwomenstalk.com/intelligent-rap-songs-that-will-make-you-think/)
 - [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
+- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
 - [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
-- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
-- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
-- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
-- [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
+- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
 - [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
+- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
+- [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
+- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [7 Great Country Songs ...](https://allwomenstalk.com/7-great-country-songs/)
 - [7 Awesome Christmas Songs ...](https://allwomenstalk.com/7-awesome-christmas-songs/)
 

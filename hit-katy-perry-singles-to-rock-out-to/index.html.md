@@ -3,7 +3,7 @@ title: "7 Hit Katy Perry Singles to Rock out to ..."
 description: "Roar; Firework; Part of Me; Teenage Dream; The One That Got Away; More ..."
 url: "https://music.allwomenstalk.com/hit-katy-perry-singles-to-rock-out-to/"
 category: "music"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Hit Katy Perry Singles to Rock out to ...
@@ -42,16 +42,16 @@ I seriously encourage you to listen to all of the hit tracks that I wasn't able 
 
 ## Related Posts
 
+- [band name crush](https://music.allwomenstalk.com/crush-worthy-bands-that-are-making-a-name-for-themselves/)
+- [black phillip song](https://music.allwomenstalk.com/songs-from-phillip-phillips-that-i-always-have-on-repeat/)
 - [singing sensations](https://music.allwomenstalk.com/youtube-singing-sensations-who-deserve-more-praise/)
 - [childhood songs 2000 disney](https://music.allwomenstalk.com/amazing-disney-songs-since-that-youve-got-to-love/)
-- [band neighbourhood](https://music.allwomenstalk.com/epic-performances-by-the-neighbourhood/)
+- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
+- [patrick stump taylor swift](https://celebs.allwomenstalk.com/hilarious-videos-of-taylor-swift-dancing/)
 - [vinka new song 2023 mp3 download](https://music.allwomenstalk.com/best-music-videos-to-watch-to-lift-your-mood/)
-- [band name crush](https://music.allwomenstalk.com/crush-worthy-bands-that-are-making-a-name-for-themselves/)
+- [band neighbourhood](https://music.allwomenstalk.com/epic-performances-by-the-neighbourhood/)
 - [music festivals 2014](https://music.allwomenstalk.com/music-festivals-for-for-your-hit-list/)
 - [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
-- [patrick stump taylor swift](https://celebs.allwomenstalk.com/hilarious-videos-of-taylor-swift-dancing/)
-- [black phillip song](https://music.allwomenstalk.com/songs-from-phillip-phillips-that-i-always-have-on-repeat/)
-- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 
