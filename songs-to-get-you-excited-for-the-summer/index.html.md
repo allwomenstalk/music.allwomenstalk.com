@@ -214,16 +214,16 @@ With 50 songs on this list, it still seems somewhat short, because there are so 
 
 ## Related Posts
 
-- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
-- [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
-- [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
-- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
-- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
-- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
-- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
-- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
 - [got me good cody simpson](https://music.allwomenstalk.com/awesome-acoustic-performances-by-cody-simpson/)
+- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
+- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
+- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
+- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
+- [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
+- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
+- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
+- [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
 - [10 Great Vacation Spots to Hit This Summer ...](https://travel.allwomenstalk.com/great-vacation-spots-to-hit-this-summer/)
 - [8 Romantic Ideas for Summer Dates ...](https://love.allwomenstalk.com/romantic-ideas-for-summer-dates/)
 

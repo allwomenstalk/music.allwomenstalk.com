@@ -56,16 +56,16 @@ These EDM artists all have one thing in common - amazing music! I hope you guys 
 
 ## Related Posts
 
+- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
 - [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
 - [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
-- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
-- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
 - [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
 - [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
 - [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
-- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
-- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
 - [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
+- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
+- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
 - [7 Best Musical Artists to Listen to While Sweating...](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
 - [7 Talented Alternative Artists Worth Checking out ...](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
 

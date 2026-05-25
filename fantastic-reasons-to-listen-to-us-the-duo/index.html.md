@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many reasons why you should
 
 ## Related Posts
 
-- [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
-- [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
+- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
 - [is twd a good show](https://movies.allwomenstalk.com/reasons-to-watch-the-walking-dead/)
 - [i want to become a mermaid](https://funny.allwomenstalk.com/reasons-why-being-a-mermaid-would-be-awesome/)
-- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
-- [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
+- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
+- [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
 - [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
 - [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
-- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
-- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
+- [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
+- [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

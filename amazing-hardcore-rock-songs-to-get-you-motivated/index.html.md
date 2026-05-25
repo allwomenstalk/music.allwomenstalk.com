@@ -56,16 +56,16 @@ I have carefully compiled this list of hardcore rock songs in the hopes that oth
 
 ## Related Posts
 
-- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
-- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
-- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
-- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
-- [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
+- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
-- [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
-- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
 - [the best of the 80s](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
+- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
+- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
+- [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
+- [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
+- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
+- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
 - [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
 - [7 Songs for Working out ...](https://allwomenstalk.com/7-songs-for-working-out/)
 

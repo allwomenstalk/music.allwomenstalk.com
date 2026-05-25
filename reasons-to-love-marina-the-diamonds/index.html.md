@@ -56,16 +56,16 @@ There you have it! There are SO many reasons why you should love Marina and the 
 
 ## Related Posts
 
-- [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
-- [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
 - [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
-- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
-- [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
-- [the carrie diaries season 2 episode 7](https://movies.allwomenstalk.com/reasons-to-watch-the-carrie-diaries-regardless-of-your-age/)
-- [jenna fischer undeclared](https://movies.allwomenstalk.com/reasons-to-watch-and-love-undeclared/)
-- [parenthood season 7](https://movies.allwomenstalk.com/reasons-to-watch-and-love-parenthood/)
-- [cartoons frozen](https://movies.allwomenstalk.com/reasons-why-frozen-is-the-best-disney-movie-ever-made/)
 - [timothy olyphant satc](https://movies.allwomenstalk.com/reasons-to-start-watching-sex-and-the-city-again/)
+- [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
+- [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
+- [jenna fischer undeclared](https://movies.allwomenstalk.com/reasons-to-watch-and-love-undeclared/)
+- [cartoons frozen](https://movies.allwomenstalk.com/reasons-why-frozen-is-the-best-disney-movie-ever-made/)
+- [parenthood season 7](https://movies.allwomenstalk.com/reasons-to-watch-and-love-parenthood/)
+- [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
+- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
+- [the carrie diaries season 2 episode 7](https://movies.allwomenstalk.com/reasons-to-watch-the-carrie-diaries-regardless-of-your-age/)
 - [5 Reasons Why I Love Vampires ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-vampires/)
 - [7 Reasons I Adore Lady Gaga ...](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
 

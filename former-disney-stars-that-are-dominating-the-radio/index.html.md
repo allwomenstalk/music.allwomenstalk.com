@@ -43,15 +43,15 @@ Who’s your favorite Disney star who’s currently dominating the radio? I love
 ## Related Posts
 
 - [who is the most hated celebrity in the world](https://celebs.allwomenstalk.com/haters-gonna-hate-of-the-most-controversial-celebrities/)
-- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
-- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
-- [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
-- [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
-- [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
-- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
 - [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
 - [famous women who wear glasses](https://celebs.allwomenstalk.com/how-to-wear-glasses-as-told-by-celebrities/)
 - [disney recognize now](https://celebs.allwomenstalk.com/female-disney-stars-who-you-wont-even-recognize-now/)
+- [celebrities imitating other celebrities](https://celebs.allwomenstalk.com/youve-got-to-see-these-celebrities-imitating-other-celebrities/)
+- [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
+- [new artists 2016](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in/)
+- [high school musical audition](https://movies.allwomenstalk.com/high-school-musical-reunion-see-the-actors-audition-tapes/)
+- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
+- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
 - [7 Best Shows on the Disney Channel ...](https://allwomenstalk.com/7-best-shows-on-the-disney-channel/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 

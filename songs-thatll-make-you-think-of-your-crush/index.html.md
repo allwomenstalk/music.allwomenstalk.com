@@ -42,16 +42,16 @@ Whether or not you end up with your crush, you're free to daydream about him as 
 
 ## Related Posts
 
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
 - [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
 - [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
 - [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
 - [A Little Bit of a Crush Now ...](https://allwomenstalk.com/a-little-bit-of-a-crush-now/)
 - [You Cant Stop Thinking about Him ...](https://allwomenstalk.com/you-cant-stop-thinking-about-him/)
 

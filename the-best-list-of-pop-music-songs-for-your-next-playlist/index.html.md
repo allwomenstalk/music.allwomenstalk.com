@@ -246,16 +246,16 @@ I pride myself on being pretty good at choosing music (don't tell my wife that t
 
 ## Related Posts
 
-- [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
-- [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
-- [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
-- [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
-- [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
-- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
-- [songs about bad love](https://music.allwomenstalk.com/sexy-songs-about-liking-bad-boys/)
 - [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
-- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
 - [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
+- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
+- [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
+- [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
+- [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
+- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
+- [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
+- [songs about bad love](https://music.allwomenstalk.com/sexy-songs-about-liking-bad-boys/)
+- [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
 - [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 - [10 Great Foreign Pop Songs ...](https://allwomenstalk.com/10-great-foreign-pop-songs/)
 

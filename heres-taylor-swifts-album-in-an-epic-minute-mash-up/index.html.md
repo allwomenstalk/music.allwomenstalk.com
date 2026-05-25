@@ -14,16 +14,16 @@ Which 1989 song is your favorite?
 
 ## Related Posts
 
-- [This Music Video Features 100 Real-life Couples  W...](https://music.allwomenstalk.com/this-music-video-features-real-life-couples-will-make-your-heart-melt/)
 - [Hot Albums That Are Dropping at the End of 2015 .....](https://music.allwomenstalk.com/hot-albums-that-are-dropping-at-the-end-of/)
-- [the9 songs](https://music.allwomenstalk.com/the-best-songs-to-power-through-your-chilly-winter-workouts/)
 - [Documentaries That All Musos Should See ...](https://music.allwomenstalk.com/documentaries-that-all-musos-should-see/)
-- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
-- [The Silliest Misheard Song Lyrics of 2015 ...](https://lifestyle.allwomenstalk.com/the-silliest-misheard-song-lyrics-of/)
+- [apple music info](https://music.allwomenstalk.com/all-you-need-to-know-about-apple-music/)
 - [The Ultimate Essentials for Music Fests ...](https://music.allwomenstalk.com/the-ultimate-essentials-for-music-fests/)
 - [The Soundtrack for an Adventurers Life ...](https://music.allwomenstalk.com/the-soundtrack-for-an-adventurers-life/)
-- [apple music info](https://music.allwomenstalk.com/all-you-need-to-know-about-apple-music/)
 - [good run songs](https://running.allwomenstalk.com/best-songs-for-your-running-playlist/)
+- [the9 songs](https://music.allwomenstalk.com/the-best-songs-to-power-through-your-chilly-winter-workouts/)
+- [This Music Video Features 100 Real-life Couples  W...](https://music.allwomenstalk.com/this-music-video-features-real-life-couples-will-make-your-heart-melt/)
+- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
+- [The Silliest Misheard Song Lyrics of 2015 ...](https://lifestyle.allwomenstalk.com/the-silliest-misheard-song-lyrics-of/)
 - [Lady Gaga Goes Country](https://celebs.allwomenstalk.com/lady-gaga-goes-country/)
 - [TMF 2006 Video Mashup ...](https://allwomenstalk.com/tmf-video-mashup/)
 

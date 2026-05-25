@@ -42,16 +42,16 @@ Well, there you have it! These are seven out of many reasons to be excited for F
 
 ## Related Posts
 
-- [divergent ways to watch](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-divergent-movie/)
-- [riche le stylo eye always pink](https://movies.allwomenstalk.com/compelling-reasons-to-jump-on-the-wahlburgers-bandwagon/)
 - [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
-- [zooey deschanel personality](https://celebs.allwomenstalk.com/awesome-reasons-you-should-love-zooey-deschanel/)
-- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
-- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
 - [love a girl right little mix](https://music.allwomenstalk.com/awesome-reasons-to-love-little-mix/)
-- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
+- [riche le stylo eye always pink](https://movies.allwomenstalk.com/compelling-reasons-to-jump-on-the-wahlburgers-bandwagon/)
 - [is zendaya nice](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
+- [divergent ways to watch](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-divergent-movie/)
+- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
+- [zooey deschanel personality](https://celebs.allwomenstalk.com/awesome-reasons-you-should-love-zooey-deschanel/)
+- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
 - [watching sherlock](https://movies.allwomenstalk.com/reasons-to-start-watching-sherlock-asap/)
+- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
 - [7 Reasons to Love the Jonas Brothers ...](https://allwomenstalk.com/7-reasons-to-love-the-jonas-brothers/)
 - [10 Summer Concerts You Wont Want to Miss ...](https://movies.allwomenstalk.com/summer-concerts-you-wont-want-to-miss/)
 

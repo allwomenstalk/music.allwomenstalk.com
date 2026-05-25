@@ -50,16 +50,16 @@ Listening to all of these one hit wonders from the '90s sure has brought back so
 
 ## Related Posts
 
-- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
-- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
 - [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
-- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
 - [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
-- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
+- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
 - [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
+- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
+- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
 - [Top 9 Shows from the 90s ...](https://lifestyle.allwomenstalk.com/top-shows-from-the-90s/)
 - [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 

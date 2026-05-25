@@ -16,16 +16,16 @@ Mind blowing stuff, right?
 
 ## Related Posts
 
-- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
-- [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
-- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
-- [helen mirren casual clothes](https://celebs.allwomenstalk.com/gorgeous-at-every-age-a-peek-inside-helen-mirrens-lookbook/)
+- [victoria secret models no makeup](https://makeup.allwomenstalk.com/the-power-of-makeup-wait-til-you-see-these-victoria-secrets-models-au-naturel/)
 - [aniston cake](https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/)
 - [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
 - [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
 - [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
-- [victoria secret models no makeup](https://makeup.allwomenstalk.com/the-power-of-makeup-wait-til-you-see-these-victoria-secrets-models-au-naturel/)
+- [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
 - [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
+- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
+- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
+- [helen mirren casual clothes](https://celebs.allwomenstalk.com/gorgeous-at-every-age-a-peek-inside-helen-mirrens-lookbook/)
 - [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
 - [A Moms View on Britney Spears ...](https://allwomenstalk.com/a-moms-view-on-britney-spears/)
 

@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many incredible Pentatonix 
 
 ## Related Posts
 
-- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
-- [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
+- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
+- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
+- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
 - [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
 - [divergent soundtrack tracklist](https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/)
+- [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
+- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
 - [paris color riche le smoky bottomless](https://music.allwomenstalk.com/of-pnks-music-videos-we-cant-get-enough-of/)
-- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
 - [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
 - [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
-- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
-- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

@@ -62,16 +62,16 @@ These are just a few of the songs that I absolutely love and that I can't live w
 
 ## Related Posts
 
-- [music for the 4th of july](https://music.allwomenstalk.com/songs-to-play-at-your-4th-of-july-barbecue/)
-- [songs about friend breakups](https://music.allwomenstalk.com/amazing-breakup-songs-that-know-just-how-you-feel/)
-- [the best of the 80s](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
 - [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
-- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
-- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
 - [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
-- [www hard core com](https://music.allwomenstalk.com/amazing-hardcore-rock-songs-to-get-you-motivated/)
 - [believe in yourself songs](https://music.allwomenstalk.com/inspirational-rap-songs-to-listen-to-when-youre-feeling-down/)
+- [www hard core com](https://music.allwomenstalk.com/amazing-hardcore-rock-songs-to-get-you-motivated/)
+- [music for the 4th of july](https://music.allwomenstalk.com/songs-to-play-at-your-4th-of-july-barbecue/)
 - [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
+- [songs about friend breakups](https://music.allwomenstalk.com/amazing-breakup-songs-that-know-just-how-you-feel/)
+- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
+- [the best of the 80s](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
+- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
 - [9 Best and Extremely Charming Movie Soundtracks Th...](https://lifestyle.allwomenstalk.com/best-and-extremely-charming-movie-soundtracks-that-i-love/)
 - [10 Best Disney Princesses ...](https://allwomenstalk.com/7-best-disney-princesses/)
 

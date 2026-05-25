@@ -51,14 +51,14 @@ Summer is the perfect time to have fun with your friends and family, so take adv
 ## Related Posts
 
 - [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
+- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
+- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
+- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
 - [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
 - [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
-- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 - [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
-- [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
 - [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
-- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
-- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
+- [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
 - [9 Fascinatingly Amazing Songs to Blast While in th...](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
 - [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 - [9 Fun Songs to Get You Pumped for a Night out ...](https://lifestyle.allwomenstalk.com/fun-songs-to-get-you-pumped-for-a-night-out/)

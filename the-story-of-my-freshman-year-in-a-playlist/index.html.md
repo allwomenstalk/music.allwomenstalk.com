@@ -56,16 +56,16 @@ John Mayer’s “Half of my Heart” – what can I say, I was obsessed with th
 
 ## Related Posts
 
-- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
-- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
+- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
 - [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
-- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
+- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
 - [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
+- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 - [The 20 Songs That Would Be on the Soundtrack to My...](https://allwomenstalk.com/the-20-songs-that-would-be-on-the-soundtrack-to-my-life/)
 

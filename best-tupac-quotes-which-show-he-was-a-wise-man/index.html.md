@@ -56,16 +56,16 @@ These are just a few quotes by Tupac, who will live on through his music, films 
 
 ## Related Posts
 
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
-- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
 - [quotes on worry](https://inspiration.allwomenstalk.com/best-quotes-about-worry-to-help-stop-it-in-its-tracks/)
-- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
-- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
-- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
 - [math quotes by albert einstein](https://funny.allwomenstalk.com/quotes-about-math-to-make-even-the-math-haters-smile/)
 - [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
-- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
+- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
 - [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
+- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
+- [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
+- [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
+- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 - [8 of My Favorite Quotes ...](https://allwomenstalk.com/8-of-my-favorite-quotes/)
 

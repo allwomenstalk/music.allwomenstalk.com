@@ -42,16 +42,16 @@ There you have it! These are some incredible covers that’ll definitely turn yo
 
 ## Related Posts
 
-- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
-- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
 - [call your girlfriend lennon and maisy](https://music.allwomenstalk.com/covers-by-lennon-and-maisy-stella-thatll-amaze-you/)
-- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
+- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
 - [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
+- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
+- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
+- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
 - [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
 - [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
-- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [8 New Magazine Covers to Lust after ...](https://allwomenstalk.com/8-new-magazine-covers-to-lust-after/)
 - [5 Blogs by Celebrities Youd Love to Get to Know .....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 

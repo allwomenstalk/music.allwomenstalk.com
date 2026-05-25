@@ -59,16 +59,16 @@ I love the devotion shared by fans of Sinatra to keep his music thriving. As suc
 
 ## Related Posts
 
-- [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
 - [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
+- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
+- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
 - [songs about being yourself](https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/)
 - [taylor swift songs that arent about breakups](https://music.allwomenstalk.com/taylor-swift-songs-to-help-you-get-over-heartbreak/)
-- [one hit wonders in the 90s](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
-- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
 - [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
-- [songs confidence](https://music.allwomenstalk.com/songs-that-will-boost-your-confidence/)
+- [one hit wonders in the 90s](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
 - [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
-- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
+- [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
+- [songs confidence](https://music.allwomenstalk.com/songs-that-will-boost-your-confidence/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 - [9 Something Corporate Songs That Move Me ...](https://allwomenstalk.com/9-something-corporate-songs-that-move-me/)
 

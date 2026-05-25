@@ -74,16 +74,16 @@ Well, there you have it! Narrowing it down to just 15 artists was pretty tough. 
 
 ## Related Posts
 
-- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
-- [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
-- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
-- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
 - [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
 - [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
 - [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
+- [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
+- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
+- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
+- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [10 Top Singers of 2010 ...](https://allwomenstalk.com/top-singers-of/)
 - [9 Worst Singing Actors ...](https://allwomenstalk.com/9-worst-singing-actors/)
 

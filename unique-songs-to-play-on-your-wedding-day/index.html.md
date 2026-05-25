@@ -56,16 +56,16 @@ What unique songs do you plan on playing on your wedding day? Will you pick any 
 
 ## Related Posts
 
-- [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
-- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
-- [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
-- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
+- [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
+- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
 - [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
+- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
+- [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
 - [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
 - [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
-- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
-- [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
+- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
 - [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
+- [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
 - [5 Christmas Songs to Play at Your Winter Wedding ....](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 

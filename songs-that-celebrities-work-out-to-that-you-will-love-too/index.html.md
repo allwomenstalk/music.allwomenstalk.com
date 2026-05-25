@@ -45,16 +45,16 @@ _instyle.com_, [womenshealthmag.com](https://www.womenshealthmag.com/fitness/a19
 
 ## Related Posts
 
-- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
-- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
-- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
-- [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
-- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
-- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
 - [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
-- [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
+- [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
+- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
 - [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
+- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
+- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
+- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
+- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
 - [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
+- [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

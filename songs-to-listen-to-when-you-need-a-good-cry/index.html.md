@@ -42,15 +42,15 @@ Don't be afraid to let out your emotions. Sometimes, all you need is a good cry 
 
 ## Related Posts
 
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
 - [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
-- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
+- [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
+- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
+- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
 - [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 - [15 Inspiring Movies That Will Lift Your Spirits .....](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)

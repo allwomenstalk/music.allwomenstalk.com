@@ -92,15 +92,15 @@ Catch you later…
 ## Related Posts
 
 - [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
-- [is christina aguilera single](https://music.allwomenstalk.com/the-best-christina-aguilera-singles/)
 - [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
-- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
 - [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [hip hop diss songs](https://music.allwomenstalk.com/top-diss-tracks-in-hip-hop-history/)
 - [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
 - [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
+- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [is christina aguilera single](https://music.allwomenstalk.com/the-best-christina-aguilera-singles/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [hip hop diss songs](https://music.allwomenstalk.com/top-diss-tracks-in-hip-hop-history/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
 - [From the Blog Bag ...](https://allwomenstalk.com/from-the-blog-bag/)
 - [Tattoo You ...](https://allwomenstalk.com/tattoo-you/)
 

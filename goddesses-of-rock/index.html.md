@@ -30,16 +30,16 @@ Were there any other current female rockers I left out? Please list them in the 
 
 ## Related Posts
 
-- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
 - [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
 - [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
-- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
 - [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
+- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [hot artists](https://music.allwomenstalk.com/hot-artists-you-should-be-listening-to-right-now/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
+- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
 - [The Best Gifts for Girls That Can Touch Their Soul...](https://allwomenstalk.com/best-gifts-for-girls/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 

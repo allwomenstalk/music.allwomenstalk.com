@@ -69,13 +69,13 @@ We can all agree that getting to the gym and rocking it can be difficult at time
 
 ## Related Posts
 
-- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
-- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
 - [90s duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
-- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
+- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
+- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
+- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
+- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
 - [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
 - [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
 - [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)

@@ -82,16 +82,16 @@ So, what songs are you listening to this week?
 
 ## Related Posts
 
-- [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
-- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
+- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
 - [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
+- [prince video songs](https://music.allwomenstalk.com/prince-songs-every-millennial-should-know/)
+- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
+- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
+- [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
 - [rap songs about resilience](https://music.allwomenstalk.com/intelligent-rap-songs-that-will-make-you-think/)
 - [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
-- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
-- [prince video songs](https://music.allwomenstalk.com/prince-songs-every-millennial-should-know/)
-- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
-- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
 - [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
+- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

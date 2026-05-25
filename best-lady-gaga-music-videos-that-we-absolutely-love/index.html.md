@@ -42,16 +42,16 @@ These 7 videos sum up Lady Gaga’s larger-than-life artistic vision. Gaga’s m
 
 ## Related Posts
 
-- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
-- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
-- [best selling albums of the 70s](https://music.allwomenstalk.com/best-selling-albums-of-all-time-you-need-on-your-mp3-player/)
 - [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
+- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
 - [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
 - [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
-- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
 - [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
+- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
+- [best selling albums of the 70s](https://music.allwomenstalk.com/best-selling-albums-of-all-time-you-need-on-your-mp3-player/)
+- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
 - [9 Best and Extremely Charming Movie Soundtracks Th...](https://lifestyle.allwomenstalk.com/best-and-extremely-charming-movie-soundtracks-that-i-love/)
 - [Top 15 Best Choreographed Music Videos ...](https://allwomenstalk.com/top-15-best-choreographed-music-videos/)
 

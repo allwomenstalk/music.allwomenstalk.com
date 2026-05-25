@@ -42,16 +42,16 @@ Everyone needs these punk bands on their iPods. Some of these bands helped estab
 
 ## Related Posts
 
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
+- [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
+- [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
+- [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
 - [best selling albums of the 70s](https://music.allwomenstalk.com/best-selling-albums-of-all-time-you-need-on-your-mp3-player/)
 - [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
-- [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
-- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
-- [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
 - [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
-- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
 - [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
-- [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
+- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 - [7 Apps for Music Lovers ...](https://music.allwomenstalk.com/apps-for-music-lovers/)
 

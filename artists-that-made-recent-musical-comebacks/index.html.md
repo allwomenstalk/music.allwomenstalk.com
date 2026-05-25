@@ -42,15 +42,15 @@ That sums up my list for 7 artists with recent musical comebacks. All of these a
 
 ## Related Posts
 
-- [7 Most Inspirational Eminem Songs for when Youre F...](https://music.allwomenstalk.com/most-inspirational-eminem-songs-for-when-youre-feeling-low_/)
-- [happy fun music](https://music.allwomenstalk.com/fun-music-festivals-that-keep-you-busy-and-happy/)
-- [best new artist 2013](https://music.allwomenstalk.com/amazing-new-artists-of-that-youve-got-to-listen-to/)
 - [iconic throwback songs](https://music.allwomenstalk.com/best-throwback-songs-for-when-you-feel-nostalgic/)
+- [happy fun music](https://music.allwomenstalk.com/fun-music-festivals-that-keep-you-busy-and-happy/)
+- [best rap albums of 2013](https://music.allwomenstalk.com/best-albums-of-that-we-absolutely-love/)
 - [catchy theme song](https://movies.allwomenstalk.com/tv-shows-with-catchy-theme-songs-thatll-stay-in-your-head/)
-- [hot boy bands](https://music.allwomenstalk.com/amazing-boy-bands-were-head-over-heels-in-love-with/)
 - [christina agulaira](https://music.allwomenstalk.com/amazing-songs-that-defined/)
 - [2014 artists](https://music.allwomenstalk.com/wonderful-artists-to-look-out-for-in/)
-- [best rap albums of 2013](https://music.allwomenstalk.com/best-albums-of-that-we-absolutely-love/)
+- [best new artist 2013](https://music.allwomenstalk.com/amazing-new-artists-of-that-youve-got-to-listen-to/)
+- [7 Most Inspirational Eminem Songs for when Youre F...](https://music.allwomenstalk.com/most-inspirational-eminem-songs-for-when-youre-feeling-low_/)
+- [hot boy bands](https://music.allwomenstalk.com/amazing-boy-bands-were-head-over-heels-in-love-with/)
 - [best songs about nashville](https://music.allwomenstalk.com/awesome-songs-from-nashville-that-youre-going-to-love/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [8 Awesome Celebrity Comebacks ...](https://allwomenstalk.com/8-awesome-celebrity-comebacks/)

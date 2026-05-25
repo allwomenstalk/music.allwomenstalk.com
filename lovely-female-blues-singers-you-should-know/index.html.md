@@ -70,16 +70,16 @@ I realize that the blues isn't as popular today as it has been in past generatio
 
 ## Related Posts
 
-- [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
-- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
-- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
-- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
 - [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
-- [archie panjabi bikini](https://celebs.allwomenstalk.com/underrated-actresses-that-i-want-to-see-more-of/)
-- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
-- [emma stone character](https://movies.allwomenstalk.com/fabulous-characters-portrayed-by-emma-stone-that-you-cant-help-but-love/)
 - [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [emma stone character](https://movies.allwomenstalk.com/fabulous-characters-portrayed-by-emma-stone-that-you-cant-help-but-love/)
+- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
+- [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
+- [archie panjabi bikini](https://celebs.allwomenstalk.com/underrated-actresses-that-i-want-to-see-more-of/)
+- [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
+- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
+- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 - [7 up and Coming Singers You Should Know about ...](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
 

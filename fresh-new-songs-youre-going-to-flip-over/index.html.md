@@ -90,16 +90,16 @@ What new songs do you love lately? Are you stealing any of these for your new pl
 
 ## Related Posts
 
-- [jammin songs](https://music.allwomenstalk.com/summer-songs-to-get-you-groovin/)
-- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
-- [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
-- [songs for beautiful girl](https://music.allwomenstalk.com/flaunt-your-girl-power-with-these-empowering-songs/)
-- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
-- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
-- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
 - [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
+- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
+- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
 - [chores of a song](https://music.allwomenstalk.com/be-inspired-to-do-your-chores-by-these-music-videos/)
+- [jammin songs](https://music.allwomenstalk.com/summer-songs-to-get-you-groovin/)
+- [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
+- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
+- [songs for beautiful girl](https://music.allwomenstalk.com/flaunt-your-girl-power-with-these-empowering-songs/)
 - [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
+- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

@@ -42,16 +42,16 @@ I for one love watching music videos, and seeing the way different directors int
 
 ## Related Posts
 
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
-- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
-- [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
+- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
 - [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
+- [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
+- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
+- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
 - [1989 album covers](https://music.allwomenstalk.com/this-mash-up-cover-of-taylor-swifts-entire-album-is-awesome/)
+- [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
 - [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
 - [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
-- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
-- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [Music to Our Eyes ...](https://allwomenstalk.com/music-to-our-eyes/)
 

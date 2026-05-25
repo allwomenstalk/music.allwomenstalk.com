@@ -50,16 +50,16 @@ Playing music while you make out will make the experience so much sweeter. Do yo
 
 ## Related Posts
 
-- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
-- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
 - [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
 - [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
 - [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
 - [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
 - [8 Romantic Slow-Dancing Songs ...](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
 - [8 Sexy Songs to Get You in the Mood ...](https://love.allwomenstalk.com/sexy-songs-to-get-you-in-the-mood/)
 

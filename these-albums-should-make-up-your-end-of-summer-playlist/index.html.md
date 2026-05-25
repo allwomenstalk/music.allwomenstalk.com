@@ -42,16 +42,16 @@ What is your favorite album on this list? Is it your favorite album of the summe
 
 ## Related Posts
 
-- [breaking heart songs](https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/)
-- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
-- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
 - [skin rihanna lyrics](https://music.allwomenstalk.com/seductive-songs-to-listen-to-during-sex/)
-- [happy fall songs](https://music.allwomenstalk.com/these-songs-will-give-you-all-of-the-autumn-feels/)
+- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
+- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
+- [breaking heart songs](https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/)
 - [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
-- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
 - [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
 - [sad songs to listen to when you miss someone](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-missing-someone/)
+- [happy fall songs](https://music.allwomenstalk.com/these-songs-will-give-you-all-of-the-autumn-feels/)
 - [Top 10 Books You Should Read This Summer ...](https://allwomenstalk.com/top-10-books-you-should-read-this-summer/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

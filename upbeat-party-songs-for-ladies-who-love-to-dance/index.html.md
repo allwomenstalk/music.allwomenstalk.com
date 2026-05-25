@@ -54,16 +54,16 @@ Now you'll be able to dance around with your friends whenever you feel like it! 
 
 ## Related Posts
 
-- [chores of a song](https://music.allwomenstalk.com/be-inspired-to-do-your-chores-by-these-music-videos/)
-- [michelle branch 1000 miles](https://music.allwomenstalk.com/the-definitive-soundtrack-of-the-early-00s-for-people-feeling-nostalgic/)
-- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
-- [songs that help depression](https://music.allwomenstalk.com/songs-to-help-you-face-depression-for-girls-with-no-where-to-turn/)
-- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
-- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
-- [songs for beautiful girl](https://music.allwomenstalk.com/flaunt-your-girl-power-with-these-empowering-songs/)
-- [jammin songs](https://music.allwomenstalk.com/summer-songs-to-get-you-groovin/)
-- [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
 - [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
+- [chores of a song](https://music.allwomenstalk.com/be-inspired-to-do-your-chores-by-these-music-videos/)
+- [jammin songs](https://music.allwomenstalk.com/summer-songs-to-get-you-groovin/)
+- [michelle branch 1000 miles](https://music.allwomenstalk.com/the-definitive-soundtrack-of-the-early-00s-for-people-feeling-nostalgic/)
+- [songs for beautiful girl](https://music.allwomenstalk.com/flaunt-your-girl-power-with-these-empowering-songs/)
+- [songs that help depression](https://music.allwomenstalk.com/songs-to-help-you-face-depression-for-girls-with-no-where-to-turn/)
+- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
+- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
+- [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
+- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
 - [9 Amazing Hairpieces to Wear to Parties ...](https://hair.allwomenstalk.com/amazing-hairpieces-to-wear-to-parties/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 

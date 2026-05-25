@@ -62,16 +62,16 @@ Which are your **favorite summer songs**? Share with me!
 
 ## Related Posts
 
-- [when youve had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
-- [keha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
-- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
-- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
-- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
-- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
 - [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
 - [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [when youve had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
+- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
+- [keha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
+- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [8 Top Work out Songs for Spring ...](https://health.allwomenstalk.com/top-work-out-songs-for-spring/)
 - [10 Songs for Fall 2012 That Should Be on Your Play...](https://lifestyle.allwomenstalk.com/songs-for-fall-that-should-be-on-your-playlist/)
 

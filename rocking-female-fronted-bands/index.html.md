@@ -62,16 +62,16 @@ These are just a few rocking female fronted bands from throughout the ages. Are 
 
 ## Related Posts
 
-- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
-- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
-- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
-- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
-- [black woman inspirational](https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/)
-- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
-- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
 - [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
+- [inspirational fictional characters](https://inspiration.allwomenstalk.com/amazing-fictional-women-who-are-inspirational-in-my-life/)
+- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
 - [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
 - [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
+- [wear it to flaunt it.](https://fashion.allwomenstalk.com/women-who-wear-what-they-want-and-flaunt-it/)
+- [black woman inspirational](https://inspiration.allwomenstalk.com/inspirational-black-women-who-changed-history/)
+- [black female singers of the 60s](https://music.allwomenstalk.com/lovely-female-blues-singers-you-should-know/)
+- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
+- [janet esteves mickey mouse](https://lifestyle.allwomenstalk.com/women-with-huge-collections/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)
 - [8 Amazing Bangles ...](https://jewelry.allwomenstalk.com/8-amazing-bangles/)
 

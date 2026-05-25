@@ -77,14 +77,14 @@ The next time you have people over, consider putting on these songs. They’re e
 
 ## Related Posts
 
+- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
 - [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
 - [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
 - [best background music for interviews](https://music.allwomenstalk.com/songs-to-listen-to-on-your-way-to-an-interview-to-boost-your-confidence/)
-- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
-- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
+- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
 - [lets go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
+- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
 - [90s duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
 - [4 Fun Songs to Walk down the Aisle to ...](https://wedding.allwomenstalk.com/fun-songs-to-walk-down-the-aisle-to/)

@@ -313,16 +313,16 @@ On iTunes at: [itunes.apple.com](https://music.apple.com/us/album/whitesnake/113
 
 ## Related Posts
 
-- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
-- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
-- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 - [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
-- [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
+- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
 - [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
+- [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
+- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 - [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
+- [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
 - [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
 - [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
 

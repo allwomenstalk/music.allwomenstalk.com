@@ -42,16 +42,16 @@ Music is a powerful experience that can literally change your life. Although not
 
 ## Related Posts
 
-- [7 Songs to Put on Your 2014 Workout Playlist ...](https://music.allwomenstalk.com/songs-to-put-on-your-workout-playlist/)
-- [7 Captivating Orchestral Pieces Perfect for Girls ...](https://music.allwomenstalk.com/orchestral-pieces-for-classical-music-novices/)
-- [Taylor Swift Shakes It off ...](https://celebs.allwomenstalk.com/taylor-swift-shakes-it-off/)
-- [loreal le stylo smoky blinged brilliant](https://music.allwomenstalk.com/albums-coming-out-this-fall-worth-checking-out/)
-- [Tell It like It is with One of These Catchy Tunes ...](https://music.allwomenstalk.com/hilariously-awesome-songs-that-tell-it-like-it-is/)
-- [7 Upcoming Albums to Look Forward to ...](https://music.allwomenstalk.com/upcoming-albums-to-look-forward-to/)
-- [classic disco moves](https://music.allwomenstalk.com/classic-dance-moves-for-your-disco-pleasure/)
 - [Music  Productivity: do They Go Hand in Hand ...](https://music.allwomenstalk.com/music-productivity-do-they-go-hand-in-hand/)
+- [Taylor Swift Shakes It off ...](https://celebs.allwomenstalk.com/taylor-swift-shakes-it-off/)
 - [7 Great 80s Musical Acts I Still Cant Get Enough o...](https://music.allwomenstalk.com/great-80s-musical-acts-i-still-cant-get-enough-of/)
+- [classic disco moves](https://music.allwomenstalk.com/classic-dance-moves-for-your-disco-pleasure/)
+- [7 Upcoming Albums to Look Forward to ...](https://music.allwomenstalk.com/upcoming-albums-to-look-forward-to/)
+- [loreal le stylo smoky blinged brilliant](https://music.allwomenstalk.com/albums-coming-out-this-fall-worth-checking-out/)
+- [7 Songs to Put on Your 2014 Workout Playlist ...](https://music.allwomenstalk.com/songs-to-put-on-your-workout-playlist/)
 - [subjects in music](https://music.allwomenstalk.com/surprising-subjects-for-a-musical/)
+- [Tell It like It is with One of These Catchy Tunes ...](https://music.allwomenstalk.com/hilariously-awesome-songs-that-tell-it-like-it-is/)
+- [7 Captivating Orchestral Pieces Perfect for Girls ...](https://music.allwomenstalk.com/orchestral-pieces-for-classical-music-novices/)
 - [7 Ways to Enjoy Life More ...](https://allwomenstalk.com/7-ways-to-enjoy-life-more/)
 - [7 Tips on Living a Healthy Lifestyle ...](https://allwomenstalk.com/7-tips-on-living-a-healthy-lifestyle/)
 

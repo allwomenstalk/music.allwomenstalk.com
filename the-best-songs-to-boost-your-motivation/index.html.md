@@ -60,16 +60,16 @@ Because sometimes, all we really can do is just, "Move Along."
 
 ## Related Posts
 
-- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
-- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
 - [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
-- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
-- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
-- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
 - [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
+- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
+- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Songs That Will Fire You up for Anything ...](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 

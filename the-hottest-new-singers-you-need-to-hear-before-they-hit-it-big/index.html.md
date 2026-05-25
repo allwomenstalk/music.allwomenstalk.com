@@ -42,15 +42,15 @@ Can you think of any other awesomely talented up-and-coming singers? Share them 
 
 ## Related Posts
 
-- [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
-- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
-- [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
-- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
-- [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
-- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
-- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
-- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
 - [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
+- [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
+- [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
+- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
+- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
+- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
+- [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
+- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
+- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 - [5 Hottest Celebrity News ...](https://allwomenstalk.com/5-hottest-celebrity-news/)
 - [6 Hottest Celebrity Buzz ...](https://allwomenstalk.com/6-hottest-celebrity-buzz/)
 - [10 Top Singers of 2010 ...](https://allwomenstalk.com/top-singers-of/)

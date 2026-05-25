@@ -56,16 +56,16 @@ Tokio Hotel has some great music out there and even another album on the way aft
 
 ## Related Posts
 
-- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
-- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
 - [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
-- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
-- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
-- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
-- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
 - [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
 - [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
+- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
+- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
+- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
+- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 

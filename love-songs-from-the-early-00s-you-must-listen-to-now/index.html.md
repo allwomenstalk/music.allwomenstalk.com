@@ -216,16 +216,16 @@ P.S. Love these songs? Enjoy a playlist on us! (Just ... pretend Taylor Swift is
 
 ## Related Posts
 
-- [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
-- [songs about bad love](https://music.allwomenstalk.com/sexy-songs-about-liking-bad-boys/)
-- [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
 - [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
-- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
+- [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
 - [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
-- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
-- [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
-- [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
 - [christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
+- [songs about bad love](https://music.allwomenstalk.com/sexy-songs-about-liking-bad-boys/)
+- [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
+- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
+- [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
+- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
+- [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
 - [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 - [40 Best Romantic Songs  Video Clips ...](https://allwomenstalk.com/best-romantic-songs/)
 

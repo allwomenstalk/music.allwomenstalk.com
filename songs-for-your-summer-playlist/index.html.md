@@ -56,15 +56,15 @@ I hope these songs get you in the summer mood. What did you think of these songs
 
 ## Related Posts
 
-- [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
-- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
-- [7 Awesome Movie Soundtracks That Are Better than A...](https://movies.allwomenstalk.com/awesome-movie-soundtracks-that-are-better-than-any-album/)
 - [10 Amazing Songs to Run to ...](https://running.allwomenstalk.com/amazing-songs-to-run-to/)
-- [7 Most Anticipated Album Releases for Fall 2013 .....](https://music.allwomenstalk.com/most-anticipated-album-releases-for-fall/)
 - [7 Best Ways to Discover New Music That Youll Keep ...](https://music.allwomenstalk.com/best-ways-to-discover-new-music-that-youll-keep-on-repeat/)
+- [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
+- [8 Songs to Keep You Focused at Work ...](https://music.allwomenstalk.com/songs-to-keep-you-focused-at-work/)
+- [7 Awesome Movie Soundtracks That Are Better than A...](https://movies.allwomenstalk.com/awesome-movie-soundtracks-that-are-better-than-any-album/)
 - [7 of the Most Artistic Breakout Musicians of 2013 ...](https://music.allwomenstalk.com/of-the-most-artistic-breakout-musicians-of/)
 - [9 Swoon-Worthy Love Tunes to Put on Your Playlist ...](https://music.allwomenstalk.com/swoon-worthy-love-tunes-to-put-on-your-playlist/)
-- [8 Songs to Keep You Focused at Work ...](https://music.allwomenstalk.com/songs-to-keep-you-focused-at-work/)
+- [7 Most Anticipated Album Releases for Fall 2013 .....](https://music.allwomenstalk.com/most-anticipated-album-releases-for-fall/)
+- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
 - [7 Songs to Add to Your Travel Playlist ...](https://music.allwomenstalk.com/songs-to-add-to-your-travel-playlist/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)

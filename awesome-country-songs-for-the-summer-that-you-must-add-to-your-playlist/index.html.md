@@ -49,16 +49,16 @@ These are just a few country songs for the summer that you should add to your pl
 
 ## Related Posts
 
-- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
-- [best background music for interviews](https://music.allwomenstalk.com/songs-to-listen-to-on-your-way-to-an-interview-to-boost-your-confidence/)
-- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
 - [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
+- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
+- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
+- [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
 - [90s duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
 - [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
-- [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
-- [songs about fall country](https://music.allwomenstalk.com/country-songs-for-fall-that-need-to-be-on-your-playlist/)
 - [lets go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
 - [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
+- [best background music for interviews](https://music.allwomenstalk.com/songs-to-listen-to-on-your-way-to-an-interview-to-boost-your-confidence/)
+- [songs about fall country](https://music.allwomenstalk.com/country-songs-for-fall-that-need-to-be-on-your-playlist/)
 - [7 Great Country Songs ...](https://allwomenstalk.com/7-great-country-songs/)
 - [20 Travel Songs for Your Summer Playlist ...](https://travel.allwomenstalk.com/travel-songs-for-your-summer-playlist/)
 

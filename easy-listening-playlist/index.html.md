@@ -68,16 +68,16 @@ Please tell me what songs are on your playlist in the comments. I hope you decid
 
 ## Related Posts
 
-- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
-- [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
-- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
-- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
-- [hot artists](https://music.allwomenstalk.com/hot-artists-you-should-be-listening-to-right-now/)
-- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
 - [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
 - [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
+- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
+- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
+- [hot artists](https://music.allwomenstalk.com/hot-artists-you-should-be-listening-to-right-now/)
 - [10 Best Songs to Make Your Day Better ...](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
 - [8 Songs to Soothe a Bad Mood ...](https://allwomenstalk.com/8-songs-to-soothe-a-bad-mood/)
 

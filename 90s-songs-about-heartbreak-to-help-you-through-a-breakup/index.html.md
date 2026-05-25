@@ -57,15 +57,15 @@ So if you're in a weird place where you're feeling nostalgic and heartbroken aft
 ## Related Posts
 
 - [sinatra frank songs](https://music.allwomenstalk.com/jazzy-songs-by-frank-sinatra-that-truly-inspire-me/)
-- [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
+- [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
 - [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
+- [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
+- [one hit wonders in the 90s](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
+- [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
+- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
+- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
 - [songs about being yourself](https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/)
 - [taylor swift songs that arent about breakups](https://music.allwomenstalk.com/taylor-swift-songs-to-help-you-get-over-heartbreak/)
-- [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
-- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
-- [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
-- [one hit wonders in the 90s](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
-- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 - [8 Songs to Feel Better after a Break up ...](https://love.allwomenstalk.com/songs-to-feel-better-after-a-break-up/)
 

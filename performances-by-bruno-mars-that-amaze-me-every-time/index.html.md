@@ -50,16 +50,16 @@ There you have it. These nine performances by Bruno Mars are my current favorite
 
 ## Related Posts
 
-- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
-- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
-- [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
 - [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
 - [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
-- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
 - [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
+- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
 - [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
+- [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
+- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
+- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
 - [9 Something Corporate Songs That Move Me ...](https://allwomenstalk.com/9-something-corporate-songs-that-move-me/)
 - [7 Mesmerizing TV Performances by Musicians in 2013...](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
 

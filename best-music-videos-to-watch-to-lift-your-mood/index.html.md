@@ -50,15 +50,15 @@ Music videos do this wonderful thing of adding a new dimension to your favourite
 
 ## Related Posts
 
+- [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
 - [black phillip song](https://music.allwomenstalk.com/songs-from-phillip-phillips-that-i-always-have-on-repeat/)
 - [music festivals 2014](https://music.allwomenstalk.com/music-festivals-for-for-your-hit-list/)
-- [old valentine songs](https://music.allwomenstalk.com/best-breakup-songs-for-valentines-day/)
-- [band neighbourhood](https://music.allwomenstalk.com/epic-performances-by-the-neighbourhood/)
-- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
-- [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
 - [childhood songs 2000 disney](https://music.allwomenstalk.com/amazing-disney-songs-since-that-youve-got-to-love/)
-- [singing sensations](https://music.allwomenstalk.com/youtube-singing-sensations-who-deserve-more-praise/)
 - [patrick stump taylor swift](https://celebs.allwomenstalk.com/hilarious-videos-of-taylor-swift-dancing/)
+- [band neighbourhood](https://music.allwomenstalk.com/epic-performances-by-the-neighbourhood/)
+- [singing sensations](https://music.allwomenstalk.com/youtube-singing-sensations-who-deserve-more-praise/)
+- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
+- [old valentine songs](https://music.allwomenstalk.com/best-breakup-songs-for-valentines-day/)
 - [dance birthday songs](https://music.allwomenstalk.com/of-the-best-fatherdaughter-songs-to-dance-to/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)

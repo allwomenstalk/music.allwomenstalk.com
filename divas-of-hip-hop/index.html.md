@@ -32,16 +32,16 @@ Stay tuned for an epic diva showdown in 2018 because Minaj, Remy and Cardi will 
 
 ## Related Posts
 
-- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
 - [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
+- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
+- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
 - [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
 - [genius women](https://inspiration.allwomenstalk.com/genius-women-everyone-should-know-about/)
-- [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
 - [game of throne heroine](https://movies.allwomenstalk.com/kick-ass-got-heroines/)
 - [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
-- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
 - [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
-- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
+- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
+- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
 - [5 Celeb Looks to Check out ...](https://allwomenstalk.com/celeb-looks-to-check-out/)
 - [Kim Kardashian and Other Celebs with Killer Curves...](https://celebs.allwomenstalk.com/celebs-with-killer-curves/)
 

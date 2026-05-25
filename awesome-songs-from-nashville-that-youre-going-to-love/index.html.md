@@ -42,16 +42,16 @@ There you have it, seven awesome songs from Nashville that you’ll love! Don’
 
 ## Related Posts
 
-- [christina agulaira](https://music.allwomenstalk.com/amazing-songs-that-defined/)
 - [what song made tori kelly famous](https://music.allwomenstalk.com/amazing-covers-by-tori-kelly-thatll-make-you-a-fan/)
-- [call your girlfriend lennon and maisy](https://music.allwomenstalk.com/covers-by-lennon-and-maisy-stella-thatll-amaze-you/)
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
-- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
-- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
-- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
-- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
 - [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
+- [call your girlfriend lennon and maisy](https://music.allwomenstalk.com/covers-by-lennon-and-maisy-stella-thatll-amaze-you/)
+- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
+- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
+- [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
+- [christina agulaira](https://music.allwomenstalk.com/amazing-songs-that-defined/)
+- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

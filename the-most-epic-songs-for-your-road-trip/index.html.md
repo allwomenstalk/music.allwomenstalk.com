@@ -42,16 +42,16 @@ What songs do you crank while you’re on the road? Will you be adding any of th
 
 ## Related Posts
 
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
-- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
-- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
-- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
 - [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
 - [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
 - [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
+- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
 - [Camping Girly Girl Style ...](https://allwomenstalk.com/camping-girly-girl-style/)
 - [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
 
