@@ -3,7 +3,7 @@ title: "Songs to Help You Get over Your Ex ..."
 description: "Someone like You by Adele; I Will Survive by Gloria Gaynor; Stronger by Britney Spears; It’s Not Right but It’s Okay by Whitney Houston; Knowing Me, Knowing You by ABBA; More ..."
 url: "https://music.allwomenstalk.com/songs-to-get-over-your-ex/"
 category: "music"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Songs to Help You Get over Your Ex ...
@@ -134,15 +134,15 @@ Your turn now ladies. Pitch in with your favorites.
 
 ## Related Posts
 
+- [message for a friend going through a breakup](https://lifestyle.allwomenstalk.com/dealing-with-the-devastation-of-a-friend-breakup/)
+- [matures ex](https://love.allwomenstalk.com/how-to-be-a-mature-ex-girlfriend/)
+- [best breakup lines](https://love.allwomenstalk.com/what-cliche-breakup-lines-really-mean/)
+- [loreal le stylo smoky eye spark](https://love.allwomenstalk.com/rules-to-follow-when-getting-back-with-an-ex/)
+- [break up mantra](https://love.allwomenstalk.com/breakup-mantras-that-will-help-you-move-on/)
+- [how many breakups happen a day](https://love.allwomenstalk.com/how-to-keep-your-relationship-strong-during-the-season-of-breakups/)
+- [funny break up cakes](https://love.allwomenstalk.com/use-these-cakes-to-break-up-with-your-boyfriend/)
 - [missing an ex](https://love.allwomenstalk.com/things-you-wont-miss-about-your-ex-once-hes-gone/)
 - [short story alcohol](https://love.allwomenstalk.com/short-story-exes-and-alcohol/)
-- [matures ex](https://love.allwomenstalk.com/how-to-be-a-mature-ex-girlfriend/)
-- [funny break up cakes](https://love.allwomenstalk.com/use-these-cakes-to-break-up-with-your-boyfriend/)
-- [how many breakups happen a day](https://love.allwomenstalk.com/how-to-keep-your-relationship-strong-during-the-season-of-breakups/)
-- [message for a friend going through a breakup](https://lifestyle.allwomenstalk.com/dealing-with-the-devastation-of-a-friend-breakup/)
-- [break up mantra](https://love.allwomenstalk.com/breakup-mantras-that-will-help-you-move-on/)
-- [loreal le stylo smoky eye spark](https://love.allwomenstalk.com/rules-to-follow-when-getting-back-with-an-ex/)
-- [best breakup lines](https://love.allwomenstalk.com/what-cliche-breakup-lines-really-mean/)
 - [leave him alone hell come back](https://love.allwomenstalk.com/how-to-handle-the-ex-that-wont-leave-your-bf-alone/)
 - [9 Ways to Get over Your Ex in a Week ...](https://love.allwomenstalk.com/ways-to-get-over-your-ex-in-a-week/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)

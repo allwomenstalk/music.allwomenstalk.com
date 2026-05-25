@@ -3,7 +3,7 @@ title: "Sad Songs That Will Totally Break Your Heart ..."
 description: "Last Kiss by Taylor Swift; Don’t Think Twice It’s Alright by Bob Dylan; Camouflage by Selena Gomez; Landslide by Fleetwood Mac; Let It Be Me by Ray LaMontagne; More ..."
 url: "https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/"
 category: "music"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Sad Songs That Will Totally Break Your Heart ...
@@ -42,16 +42,16 @@ What is your favorite song when you’re feeling down? Do any of these make the 
 
 ## Related Posts
 
-- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
-- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
-- [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
 - [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
+- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
+- [skin rihanna lyrics](https://music.allwomenstalk.com/seductive-songs-to-listen-to-during-sex/)
+- [sad songs to listen to when you miss someone](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-missing-someone/)
 - [saddest broadway songs](https://music.allwomenstalk.com/the-most-tearjerking-songs-from-broadway-musicals/)
 - [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
-- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
+- [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
+- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
+- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
 - [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
-- [sad songs to listen to when you miss someone](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-missing-someone/)
-- [skin rihanna lyrics](https://music.allwomenstalk.com/seductive-songs-to-listen-to-during-sex/)
 - [Heartaches ...](https://allwomenstalk.com/heartaches/)
 - [9 Songs about Unrequited Love You Cant Resist List...](https://allwomenstalk.com/10-best-broken-heart-songs/)
 

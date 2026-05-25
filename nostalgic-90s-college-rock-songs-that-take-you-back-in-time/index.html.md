@@ -3,7 +3,7 @@ title: "9 Nostalgic 90s College Rock Songs That Take You Back in Time ..."
 description: "“Crash into Me” – Dave Matthews Band; “Loser” – Beck; “Mr. Jones” – Counting Crows; “One Headlight” – the Wallflowers; “Flagpole Sitta” – Harvey Danger; More ..."
 url: "https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/"
 category: "music"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Nostalgic 90s College Rock Songs That Take You Back in Time ...
@@ -68,16 +68,16 @@ Most of these songs still have a place on my playlist, especially when I'm feeli
 
 ## Related Posts
 
-- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
 - [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
+- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
+- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
+- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
+- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
 - [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
+- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
 - [90s duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
 - [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
 - [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
-- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
-- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
-- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
 - [9 Fascinatingly Amazing Songs to Blast While in th...](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
 - [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 
