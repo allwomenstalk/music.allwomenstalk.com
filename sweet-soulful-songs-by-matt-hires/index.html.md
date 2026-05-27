@@ -3,7 +3,7 @@ title: "7 Sweet Soulful Songs by Matt Hires ..."
 description: "Honey, Let Me Sing You a Song; Restless Heart; Forever; Out of the Dark; Wishing on Dead Stars; More ..."
 url: "https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Sweet Soulful Songs by Matt Hires ...
@@ -56,16 +56,16 @@ What do you think of Matt Hires? The sad thing is, I could have included his ent
 
 ## Related Posts
 
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
+- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
 - [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
 - [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
 - [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [7 Love Songs of 2011 ...](https://love.allwomenstalk.com/love-songs-of/)
 

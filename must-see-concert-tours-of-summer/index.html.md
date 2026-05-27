@@ -3,7 +3,7 @@ title: "7 Concerts This Summer That You Cant Miss ..."
 description: "LORDE Melodrama World Tour; Maroon 5 Red Pills Blue Tour; Ed Sheeran’s North American Tour 2018; Bruno Mars 24kt Magic World Tour; Kendrick Lamar; More ..."
 url: "https://music.allwomenstalk.com/must-see-concert-tours-of-summer/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Concerts This Summer That You Cant Miss ...

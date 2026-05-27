@@ -3,7 +3,7 @@ title: "7 Most Anticipated Albums of 2014 ..."
 description: "Ultraviolence – Lana Del Rey; TBA – Adele; TBA – Kendrick Lamar; TBA – Jack White; TBA – Kanye West; More ..."
 url: "https://music.allwomenstalk.com/most-anticipated-albums-of-2014/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Most Anticipated Albums of 2014 ...
@@ -56,16 +56,16 @@ I am looking forward to the release of each of these artists' albums in the comi
 
 ## Related Posts
 
-- [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
-- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
-- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
 - [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
 - [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
 - [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
-- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
+- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
+- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
 - [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
 - [7 Love Songs of 2011 ...](https://love.allwomenstalk.com/love-songs-of/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

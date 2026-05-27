@@ -3,7 +3,7 @@ title: "7 of the Best One Hit Wonders from the 90s ..."
 description: "Good Vibrations – Marky Mark & the Funky Bunch; Mambo #5 by Lou Bega; TubThumping – Chumbawamba; Jump around by House of Pain; I’m Too Sexy by Right Said Fred; More ..."
 url: "https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 of the Best One Hit Wonders from the 90s ...
@@ -45,15 +45,15 @@ When I look back on the 90s, these are the songs that come to mind. They may not
 ## Related Posts
 
 - [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
-- [falling in love lyrics taylor swift](https://music.allwomenstalk.com/taylor-swift-songs-to-listen-to-when-youre-falling-in-love/)
-- [songs by fifth harmony](https://music.allwomenstalk.com/amazing-covers-by-fifth-harmony-thatll-turn-you-into-a-fan/)
 - [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
-- [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
-- [songs about being yourself](https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/)
-- [songs confidence](https://music.allwomenstalk.com/songs-that-will-boost-your-confidence/)
+- [songs by fifth harmony](https://music.allwomenstalk.com/amazing-covers-by-fifth-harmony-thatll-turn-you-into-a-fan/)
 - [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
 - [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
+- [songs about being yourself](https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/)
+- [falling in love lyrics taylor swift](https://music.allwomenstalk.com/taylor-swift-songs-to-listen-to-when-youre-falling-in-love/)
+- [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
 - [taylor swift songs that arent about breakups](https://music.allwomenstalk.com/taylor-swift-songs-to-help-you-get-over-heartbreak/)
+- [songs confidence](https://music.allwomenstalk.com/songs-that-will-boost-your-confidence/)
 - [7 Best Songs from Commercials ...](https://allwomenstalk.com/7-best-songs-from-commercials/)
 - [7 of My Favorite Love Songs ...](https://allwomenstalk.com/7-of-my-favorite-love-songs/)
 

@@ -3,7 +3,7 @@ title: "8 Songs to Keep You Focused at Work ..."
 description: "Poses by Rufus Wainwright; Clint Eastwood by Gorillaz; Crash into Me by Dave Matthews Band; 1983 by Neon Trees; 9 to 5 by Dolly Parton; More ..."
 url: "https://music.allwomenstalk.com/songs-to-keep-you-focused-at-work/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Songs to Keep You Focused at Work ...
@@ -67,12 +67,12 @@ While a lot of people say that classical music is the best bet when you are tryi
 - [7 of the Most Artistic Breakout Musicians of 2013 ...](https://music.allwomenstalk.com/of-the-most-artistic-breakout-musicians-of/)
 - [7 Classic Beatles Songs That Helped Reinvent the M...](https://music.allwomenstalk.com/classic-beatles-songs-that-helped-reinvent-the-music-industry/)
 - [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
-- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
-- [7 Songs to Add to Your Travel Playlist ...](https://music.allwomenstalk.com/songs-to-add-to-your-travel-playlist/)
-- [9 Swoon-Worthy Love Tunes to Put on Your Playlist ...](https://music.allwomenstalk.com/swoon-worthy-love-tunes-to-put-on-your-playlist/)
 - [10 Amazing Songs to Run to ...](https://running.allwomenstalk.com/amazing-songs-to-run-to/)
+- [9 Swoon-Worthy Love Tunes to Put on Your Playlist ...](https://music.allwomenstalk.com/swoon-worthy-love-tunes-to-put-on-your-playlist/)
 - [7 Awesome Movie Soundtracks That Are Better than A...](https://movies.allwomenstalk.com/awesome-movie-soundtracks-that-are-better-than-any-album/)
 - [7 Most Anticipated Album Releases for Fall 2013 .....](https://music.allwomenstalk.com/most-anticipated-album-releases-for-fall/)
+- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
+- [7 Songs to Add to Your Travel Playlist ...](https://music.allwomenstalk.com/songs-to-add-to-your-travel-playlist/)
 - [7 Best Ways to Discover New Music That Youll Keep ...](https://music.allwomenstalk.com/best-ways-to-discover-new-music-that-youll-keep-on-repeat/)
 - [8 Incredibly Effective Ways to Be Healthier on the...](https://health.allwomenstalk.com/incredibly-effective-ways-to-be-healthier-on-the-job/)
 - [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)

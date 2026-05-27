@@ -3,7 +3,7 @@ title: "7 More Indie Artists You Should Be Listening to ..."
 description: "MisterWives; Atlas Genius; Young the Giant; Hurts; Boy & Bear; More ..."
 url: "https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 More Indie Artists You Should Be Listening to ...
@@ -42,16 +42,16 @@ There you have it! These are just seven out of many indie artists you should lis
 
 ## Related Posts
 
-- [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
-- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
-- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
-- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
 - [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
-- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
-- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
 - [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
-- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
 - [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
+- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
+- [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
+- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
+- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
+- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
+- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
+- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
 - [7 Amazing Indie Bands That Should Be in Your Ipod ...](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [7 Talented Alternative Artists Worth Checking out ...](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
 

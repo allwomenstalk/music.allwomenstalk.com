@@ -3,7 +3,7 @@ title: "SMASHs Bombshell Musical is Coming to Life! Find out when! ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/smashs-bombshell-musical-is-coming-to-life-find-out-when/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # SMASHs Bombshell Musical is Coming to Life! Find out when! ...
@@ -18,16 +18,16 @@ Will you be buying tickets?!
 
 ## Related Posts
 
-- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
-- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
 - [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
-- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
-- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
-- [stalkers greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
-- [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
-- [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
+- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
 - [stories about kings and queens](https://lifestyle.allwomenstalk.com/of-the-craziest-kings-and-queens-in-history/)
+- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
+- [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
+- [stalkers greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
+- [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
+- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
 - [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
+- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
 - [Bond Girls: the West Side Awaits](https://allwomenstalk.com/bond-girls-the-west-side-awaits/)
 - [Bond Girls: the West Side Awaits](https://allwomenstalk.com/bond-girls-the-west-side-awaits-3/)
 

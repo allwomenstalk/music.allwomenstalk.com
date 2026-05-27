@@ -3,7 +3,7 @@ title: "15 Best 80s Rock Songs by Female Artists ..."
 description: "Walk like an Egyptian – the Bangles (1986); Heaven is a Place on Earth – Belinda Carlisle (1987); Alone – Heart (1987); Total Eclipse of the Heart – Bonnie Tyler (1983); If I Could Turn Back Time – Cher (1989); More ..."
 url: "https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 15 Best 80s Rock Songs by Female Artists ...
@@ -47,15 +47,15 @@ Yes, Joan gets two entries because let’s face it, she rules.
 ## Related Posts
 
 - [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
-- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
-- [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
-- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
 - [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
 - [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
-- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
 - [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
+- [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
+- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [8 Amazing Serge Gainsbourg Songs ...](https://allwomenstalk.com/8-amazing-serge-gainsbourg-songs/)
 - [7 1980s Girl Rockers I Love ...](https://allwomenstalk.com/7-1980s-girl-rockers-i-love/)
 

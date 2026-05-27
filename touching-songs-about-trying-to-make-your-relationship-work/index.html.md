@@ -3,7 +3,7 @@ title: "7 Touching Songs about Trying to Make Your Relationship Work ..."
 description: "Just Give Me a Reason by P!nk and Nate Ruess; It’s Not over by Secondhand Serenade; Strong Enough to Bend by Tanya Tucker; We Need a Resolution by Aaliyah; Whatever It Takes by Lifehouse; More ..."
 url: "https://music.allwomenstalk.com/touching-songs-about-trying-to-make-your-relationship-work/"
 category: "music"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Touching Songs about Trying to Make Your Relationship Work ...
@@ -46,16 +46,16 @@ Don't waste your time crying when you could spend time trying to make things rig
 
 ## Related Posts
 
-- [little mix lyrics power](https://music.allwomenstalk.com/empowering-songs-about-girl-power/)
-- [when you like someone](https://music.allwomenstalk.com/songs-about-liking-someone-you-shouldnt/)
 - [songs with word love](https://music.allwomenstalk.com/whats-the-definition-of-love-these-songs-explain-it-perfectly/)
 - [song are you thinking about me](https://music.allwomenstalk.com/songs-that-will-make-you-think-about-life/)
+- [little mix lyrics power](https://music.allwomenstalk.com/empowering-songs-about-girl-power/)
+- [life a happy song](https://music.allwomenstalk.com/songs-about-being-so-happy-in-love-it-hurts/)
+- [when you like someone](https://music.allwomenstalk.com/songs-about-liking-someone-you-shouldnt/)
+- [who sang the song so beautiful so elegant](https://music.allwomenstalk.com/listen-to-these-elegant-songs-to-feel-like-a-classy-lady/)
+- [angry playlist names](https://music.allwomenstalk.com/upset-angry-elated-a-spotify-playlist-fit-for-every-mood/)
+- [what is taylor swift favourite song](https://funny.allwomenstalk.com/what-your-favorite-taylor-swift-song-says-about-you/)
 - [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
 - [songs about showing up](https://music.allwomenstalk.com/love-is-just-around-the-corner-songs-about-that-special-someone-coming-along/)
-- [who sang the song so beautiful so elegant](https://music.allwomenstalk.com/listen-to-these-elegant-songs-to-feel-like-a-classy-lady/)
-- [what is taylor swift favourite song](https://funny.allwomenstalk.com/what-your-favorite-taylor-swift-song-says-about-you/)
-- [angry playlist names](https://music.allwomenstalk.com/upset-angry-elated-a-spotify-playlist-fit-for-every-mood/)
-- [life a happy song](https://music.allwomenstalk.com/songs-about-being-so-happy-in-love-it-hurts/)
 - [8 Little Known Ways to Make a Relationship Work .....](https://allwomenstalk.com/8-little-known-ways-to-make-a-relationship-work/)
 - [7 Ways to Grow Closer to Someone You Love ...](https://allwomenstalk.com/7-ways-to-grow-closer-to-someone-you-love/)
 
