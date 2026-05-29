@@ -3,7 +3,7 @@ title: "9 Amazing Rocker Chicks from the 80s ..."
 description: "Pat Benatar; Ann and Nancy Wilson; Lita Ford; Joan Jett; Chrissie Hynde; More ..."
 url: "https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/"
 category: "music"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 Amazing Rocker Chicks from the 80s ...
@@ -50,13 +50,13 @@ Rocker chicks of the '80s paved the way for an immeasurable amount of female art
 
 ## Related Posts
 
+- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
+- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
 - [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
+- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
+- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
 - [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
 - [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
-- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
-- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
-- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
 - [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)

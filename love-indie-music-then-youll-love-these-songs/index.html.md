@@ -3,7 +3,7 @@ title: "Love Indie Music? then Youll Love These 7 Songs ..."
 description: "Two Heads by Coleman Hell; Hold Each Other by a Great Big World; Ex’s & Oh’s by Elle King; All Time Low by Jon Bellion; Where the Sky Hangs by Passion Pit; More ..."
 url: "https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/"
 category: "music"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Love Indie Music? then Youll Love These 7 Songs ...
@@ -44,16 +44,16 @@ Sources: [pitchfork.com](https://pitchfork.com/news/58554-passion-pit-and-madeon
 
 ## Related Posts
 
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
 - [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
 - [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Best Celebs with Indie Style ...](https://allwomenstalk.com/7-best-celebs-with-indie-style/)
 

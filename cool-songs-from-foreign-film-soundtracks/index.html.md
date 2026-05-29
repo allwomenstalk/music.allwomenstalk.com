@@ -3,7 +3,7 @@ title: "7 Cool Songs from Foreign Film Soundtracks ..."
 description: "Monsoon Wedding; Amelie; Once; Spirited Away; Henry V; More ..."
 url: "https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/"
 category: "music"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Cool Songs from Foreign Film Soundtracks ...
@@ -61,16 +61,16 @@ So there you have it kittens, some awesome soundtracks and scores to rock out to
 
 ## Related Posts
 
-- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
 - [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
+- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
 - [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
-- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
-- [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
-- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
 - [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
+- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [7 Unforgettable John Williams Soundtracks ...](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
 

@@ -3,7 +3,7 @@ title: "7 Hardcore Rock Songs to Workout to ..."
 description: "Inked in Blood – All That Remains; Rage against the Machine – Killing in the Name; Escape the Fate – This War is Ours (the Guillotine Pt. II); Bury Your Dead – House of Straw; As I Lay Dying - Confined; More ..."
 url: "https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/"
 category: "music"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Hardcore Rock Songs to Workout to ...
@@ -56,16 +56,16 @@ I love working out to hardcore rock songs. I have each of these songs on my play
 
 ## Related Posts
 
-- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
-- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
-- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
 - [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
+- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
 - [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 - [7 Songs for Working out ...](https://allwomenstalk.com/7-songs-for-working-out/)
 
