@@ -3,7 +3,7 @@ title: "15 Hotly Anticipated Album Releases in 2015 ..."
 description: "Meghan Trainor, Title; Drake, Views from the 6; Fifth Harmony, Reflection; Lil Wayne, the Carter V; Justin Bieber; More ..."
 url: "https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/"
 category: "music"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 15 Hotly Anticipated Album Releases in 2015 ...
@@ -104,16 +104,16 @@ Of the list, which new album are you most excited for? These are just of the mos
 
 ## Related Posts
 
-- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
+- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
+- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [exhilirating](https://music.allwomenstalk.com/exhilarating-songs-to-listen-to-in-the-car/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
 - [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
-- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
-- [exhilirating](https://music.allwomenstalk.com/exhilarating-songs-to-listen-to-in-the-car/)
-- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
-- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
+- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
 - [artists who died too young](https://music.allwomenstalk.com/talented-musicians-who-died-too-young/)
+- [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 - [8 of My Favorite Music Albums from 2010 ...](https://allwomenstalk.com/of-my-favorite-music-albums-from/)
 

@@ -3,7 +3,7 @@ title: "Songs Thatll Make You Think of Your Crush ..."
 description: "Crush by Mandy Moore; Pumpkin Soup by Kate Nash; Crush by David Archuleta; Falling for You by Colbie Caillat; What I like about You by the Romantics; More ..."
 url: "https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/"
 category: "music"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Songs Thatll Make You Think of Your Crush ...
@@ -42,16 +42,16 @@ Whether or not you end up with your crush, you're free to daydream about him as 
 
 ## Related Posts
 
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
 - [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
 - [A Little Bit of a Crush Now ...](https://allwomenstalk.com/a-little-bit-of-a-crush-now/)
 - [You Cant Stop Thinking about Him ...](https://allwomenstalk.com/you-cant-stop-thinking-about-him/)
 

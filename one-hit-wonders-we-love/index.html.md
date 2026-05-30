@@ -3,7 +3,7 @@ title: "10 One Hit Wonders We Love ..."
 description: "Tubthumping - Chumbawamba; Never Gonna Give You up - Rick Astley; Come on Eileen - Dexys Midnight Runners; Teenage Dirtbag - Wheatus; Eye of the Tiger - Survivor; More ..."
 url: "https://music.allwomenstalk.com/one-hit-wonders-we-love/"
 category: "music"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 One Hit Wonders We Love ...
@@ -54,16 +54,16 @@ Perhaps the real reason these bands are only one hit wonders is that the songs t
 
 ## Related Posts
 
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
+- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
 - [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
 - [what to do when youre fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
-- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
+- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 

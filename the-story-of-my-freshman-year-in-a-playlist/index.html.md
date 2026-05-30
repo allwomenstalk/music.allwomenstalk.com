@@ -3,7 +3,7 @@ title: "The Story of My Freshman Year in a Playlist for Girls Who Need Music in 
 description: "5am; 6:45am; 7am Class; 8am; 8:45am; More ..."
 url: "https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/"
 category: "music"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # The Story of My Freshman Year in a Playlist for Girls Who Need Music in Their Day ...
@@ -56,16 +56,16 @@ John Mayer’s “Half of my Heart” – what can I say, I was obsessed with th
 
 ## Related Posts
 
-- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
-- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
-- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
-- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
+- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
+- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
 - [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 - [The 20 Songs That Would Be on the Soundtrack to My...](https://allwomenstalk.com/the-20-songs-that-would-be-on-the-soundtrack-to-my-life/)
 
