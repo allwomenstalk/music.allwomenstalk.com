@@ -3,7 +3,7 @@ title: "The Most Anticipated Music Festivals of Summer 2018 ..."
 description: "Coachella; Hangout; Electric Daisy Carnival; Sasquatch; Governors Ball; More ..."
 url: "https://music.allwomenstalk.com/the-most-anticipated-music-festivals-of-summer/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The Most Anticipated Music Festivals of Summer 2018 ...

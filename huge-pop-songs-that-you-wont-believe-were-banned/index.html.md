@@ -3,7 +3,7 @@ title: "7 Huge Pop Songs That You Wont Believe Were Banned ..."
 description: "I Want It That Way; My Generation; Royals; God Only Knows; Imagine; More ..."
 url: "https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Huge Pop Songs That You Wont Believe Were Banned ...
@@ -42,16 +42,16 @@ There are other pop songs that were banned, too. Leader of the Pack was said to 
 
 ## Related Posts
 
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
+- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
+- [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
+- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
 - [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [runway fashion music](https://music.allwomenstalk.com/fabulous-songs-thatll-make-you-youll-feel-like-a-model/)
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [strong girls songs](https://music.allwomenstalk.com/best-girl-power-songs-for-when-you-need-to-be-strong/)
-- [best music to listen to while running](https://music.allwomenstalk.com/best-songs-to-listen-to-while-running-on-the-treadmill/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [10 Great Foreign Pop Songs ...](https://allwomenstalk.com/10-great-foreign-pop-songs/)
 

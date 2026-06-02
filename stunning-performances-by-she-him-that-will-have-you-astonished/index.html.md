@@ -3,7 +3,7 @@ title: "9 Stunning Performances by She & Him That Will Have You Astonished ..."
 description: "Sentimental Heart; Never Wanted Your Love; Stars Fell on Alabama; Turn to White; Brand New Shoes; More ..."
 url: "https://music.allwomenstalk.com/stunning-performances-by-she-him-that-will-have-you-astonished/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Stunning Performances by She & Him That Will Have You Astonished ...
@@ -50,16 +50,16 @@ After watching these performances on multiple occasions, I can attest to the fac
 
 ## Related Posts
 
-- [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
-- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
+- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
 - [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
-- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
+- [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
 - [songs with phone in the title](https://music.allwomenstalk.com/songs-about-the-telephone-that-will-make-you-want-to-call/)
+- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
 - [breakup empowerment songs](https://music.allwomenstalk.com/songs-to-cry-your-eyes-out-to-after-a-breakup/)
 - [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
-- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
 - [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
-- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
+- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
+- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 

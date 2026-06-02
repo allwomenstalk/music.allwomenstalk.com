@@ -3,7 +3,7 @@ title: "7 Songs Sung by Disney Villains We Cant Help but Love ..."
 description: "Poor Unfortunate Souls – the Little Meremaid; Oogie Boogie’s Song – the Nightmare before Christmas; I Put a Spell on You – Hocus Pocus; Mother Knows Best – Tangled; Gaston – Beauty and the Beast; More ..."
 url: "https://music.allwomenstalk.com/songs-sung-by-disney-villains-we-cant-help-but-love/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Songs Sung by Disney Villains We Cant Help but Love ...
@@ -42,16 +42,16 @@ The songs sung by Disney villains in the films are usually my favorites. I love 
 
 ## Related Posts
 
-- [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
-- [breakup songs for guys](https://music.allwomenstalk.com/upbeat-songs-to-help-you-get-over-a-guy/)
-- [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
 - [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
-- [qp6jdlqf23g -site:youtube.com](https://music.allwomenstalk.com/most-inspirational-rock-songs-ever/)
-- [songs for the spring](https://music.allwomenstalk.com/unique-songs-to-dance-to-this-spring/)
-- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
-- [listen to classical music while sleeping](https://music.allwomenstalk.com/reasons-you-should-listen-to-classical-music/)
-- [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
+- [breakup songs for guys](https://music.allwomenstalk.com/upbeat-songs-to-help-you-get-over-a-guy/)
 - [unpopular artist](https://music.allwomenstalk.com/lesser-known-singers-you-need-to-check-out/)
+- [qp6jdlqf23g -site:youtube.com](https://music.allwomenstalk.com/most-inspirational-rock-songs-ever/)
+- [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
+- [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
+- [listen to classical music while sleeping](https://music.allwomenstalk.com/reasons-you-should-listen-to-classical-music/)
+- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
+- [songs for the spring](https://music.allwomenstalk.com/unique-songs-to-dance-to-this-spring/)
+- [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [7 Adorable Disney Characters ...](https://movies.allwomenstalk.com/adorable-disney-characters/)
 

@@ -3,7 +3,7 @@ title: "9 One Hit Wonders from the 90s We All Love ..."
 description: "Mambo No. 5 – Lou Bega; Closing Time – Semisonic; Tubthumping – Chumbawamba; The Freshman – the Verve Pipe; What’s up? – 4 Non Blondes; More ..."
 url: "https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 One Hit Wonders from the 90s We All Love ...
@@ -50,16 +50,16 @@ Listening to all of these one hit wonders from the '90s sure has brought back so
 
 ## Related Posts
 
-- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
-- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
-- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
-- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
-- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
-- [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
 - [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
+- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
+- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
+- [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
+- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
+- [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
 - [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
+- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
 - [Top 9 Shows from the 90s ...](https://lifestyle.allwomenstalk.com/top-shows-from-the-90s/)
 - [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 

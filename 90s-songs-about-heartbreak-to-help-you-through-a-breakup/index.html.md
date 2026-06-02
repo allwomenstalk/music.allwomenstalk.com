@@ -3,7 +3,7 @@ title: "7 90s Songs about Heartbreak to Help You through a Breakup ..."
 description: "\"Don't Speak\" by No Doubt; \"Ex-Factor\" by Lauryn Hill; \"You Were Meant for Me\" by Jewel; \"Nothing Compares 2 U\" by Sinead O'Connor; \"Lovefool\" by the Cardigans; More ..."
 url: "https://music.allwomenstalk.com/90s-songs-about-heartbreak-to-help-you-through-a-breakup/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 90s Songs about Heartbreak to Help You through a Breakup ...
@@ -56,16 +56,16 @@ So if you're in a weird place where you're feeling nostalgic and heartbroken aft
 
 ## Related Posts
 
-- [songs about being yourself](https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/)
 - [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
-- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
-- [taylor swift songs that arent about breakups](https://music.allwomenstalk.com/taylor-swift-songs-to-help-you-get-over-heartbreak/)
 - [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
-- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
 - [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
+- [taylor swift songs that arent about breakups](https://music.allwomenstalk.com/taylor-swift-songs-to-help-you-get-over-heartbreak/)
 - [one hit wonders in the 90s](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
+- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
 - [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
 - [sinatra frank songs](https://music.allwomenstalk.com/jazzy-songs-by-frank-sinatra-that-truly-inspire-me/)
+- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
+- [songs about being yourself](https://music.allwomenstalk.com/of-the-best-empowering-songs-for-when-you-need-a-pick-me-up/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 - [8 Songs to Feel Better after a Break up ...](https://love.allwomenstalk.com/songs-to-feel-better-after-a-break-up/)
 

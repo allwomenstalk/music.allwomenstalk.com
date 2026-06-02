@@ -3,7 +3,7 @@ title: "12 Non-Cheesy Christmas Songs You Need to Listen to This Year ..."
 description: "Fairytale of New York by the Pogues; Where Are You Christmas by Faith Hill; My Favorite Things by Kelly Clarkson; Believe by Josh Groban; Mary, Did You Know? by Pentatonix; More ..."
 url: "https://music.allwomenstalk.com/non-cheesy-christmas-playlist/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 12 Non\-Cheesy Christmas Songs You Need to Listen to This Year ...
@@ -36,16 +36,16 @@ Are you looking for a **non-cheesy Christmas playlist**? This time of year, it f
 
 ## Related Posts
 
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
-- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
-- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
 - [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
 - [hot artists](https://music.allwomenstalk.com/hot-artists-you-should-be-listening-to-right-now/)
+- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
+- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
+- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
 - [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
 - [Top 10 of My Enchantingly Entertaining Favorite Ch...](https://lifestyle.allwomenstalk.com/top-of-my-enchantingly-entertaining-favorite-christmas-songs/)
 - [9 Non-traditional and Fun Ways to Celebrate Christ...](https://lifestyle.allwomenstalk.com/non-traditional-and-fun-ways-to-celebrate-christmas-this-year/)
 

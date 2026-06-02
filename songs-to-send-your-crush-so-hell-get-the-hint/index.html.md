@@ -3,7 +3,7 @@ title: "7 Unrequited Love Songs to Send Your Crush so Hell Finally Get the Hint 
 description: "Enchanted by Taylor Swift; Is There Somewhere by Halsey; I Really like You by Carly Rae Jepsen; Falling for You by Colbie Caillat; When I See You by Fantasia; More ..."
 url: "https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/"
 category: "music"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Unrequited Love Songs to Send Your Crush so Hell Finally Get the Hint ...
@@ -43,15 +43,15 @@ These singers know what it feels like to have a major crush. What one of these (
 ## Related Posts
 
 - [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
-- [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
-- [lyrics to gunpowder and lead](https://music.allwomenstalk.com/songs-thatll-tell-your-ex-to-go-love-himself/)
-- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
 - [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
 - [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
+- [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
+- [lyrics to gunpowder and lead](https://music.allwomenstalk.com/songs-thatll-tell-your-ex-to-go-love-himself/)
 - [benefit listening music](https://music.allwomenstalk.com/the-many-benefits-of-listening-to-music/)
 - [christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
-- [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
 - [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
+- [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
+- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
 - [9 Songs about Unrequited Love You Cant Resist List...](https://allwomenstalk.com/10-best-broken-heart-songs/)
 - [7 Fast Ways to Get over Your Crush ...](https://allwomenstalk.com/7-fast-ways-to-get-over-your-crush/)
 
