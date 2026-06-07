@@ -3,7 +3,7 @@ title: "7 Switchfoot Songs That Are Sure to Inspire ..."
 description: "Meant to Live; Golden; Hello Hurricane; I Dare You to Move; Blinding Light; More ..."
 url: "https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Switchfoot Songs That Are Sure to Inspire ...
@@ -65,14 +65,14 @@ Switchfoot has been an incredibly positive influence in my life. Are you interes
 
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
 - [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [what to do when youre fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
 - [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
-- [early who songs](https://music.allwomenstalk.com/awesome-early-songs-by-david-bowie/)
+- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
 - [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
 - [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
 - [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
+- [early who songs](https://music.allwomenstalk.com/awesome-early-songs-by-david-bowie/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [7 Great Country Songs ...](https://allwomenstalk.com/7-great-country-songs/)
 

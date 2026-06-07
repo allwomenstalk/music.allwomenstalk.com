@@ -3,7 +3,7 @@ title: "This Lord of the Rings Star Just Released a Heavy Metal Christmas Single
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # This Lord of the Rings Star Just Released a Heavy Metal Christmas Single! ...
@@ -16,17 +16,17 @@ Christopher Lee might be 92 years old but he's still got some rock to let out! T
 
 ## Related Posts
 
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
 - [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
-- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
 - [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [A New Twilight Book Released New Novella ...](https://twilight.allwomenstalk.com/a-new-twilight-book-released-new-novella/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
+- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
+- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
+- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
+- [A New Twilight Book Released? New Novella? ...](https://twilight.allwomenstalk.com/a-new-twilight-book-released-new-novella/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 
 ## Site Information

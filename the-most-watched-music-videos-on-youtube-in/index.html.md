@@ -3,7 +3,7 @@ title: "The 10 Most Watched Music Videos on YouTube in 2015 ..."
 description: "Silento – Watch Me (Whip/Nae Nae); Adele – Hello; Fifth Harmony Feat. Kid in – Worth It; Sia – Elastic Heart; David Guetta Feat. Nicki Minaj & Afrojack – Hey Mama; More ..."
 url: "https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # The 10 Most Watched Music Videos on YouTube in 2015 ...
@@ -54,15 +54,15 @@ Have you watched them all or just some? Going to catch up?
 
 ## Related Posts
 
-- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
 - [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
-- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
-- [bloodstream stateless movie](https://music.allwomenstalk.com/romantic-songs-to-listen-to-this-valentines-day/)
 - [benefit listening music](https://music.allwomenstalk.com/the-many-benefits-of-listening-to-music/)
-- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
-- [irish bands](https://music.allwomenstalk.com/the-best-irish-bands-to-listen-to-on-st-patricks-day/)
 - [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
 - [epic music 2015](https://music.allwomenstalk.com/epic-music-videos-thatll-never-stop-being-awesome/)
+- [irish bands](https://music.allwomenstalk.com/the-best-irish-bands-to-listen-to-on-st-patricks-day/)
+- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
+- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
+- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
+- [bloodstream stateless movie](https://music.allwomenstalk.com/romantic-songs-to-listen-to-this-valentines-day/)
 - [lyrics to gunpowder and lead](https://music.allwomenstalk.com/songs-thatll-tell-your-ex-to-go-love-himself/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [The 10 Hottest Dance Songs of 2011 ...](https://lifestyle.allwomenstalk.com/the-hottest-dance-songs-of/)

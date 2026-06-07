@@ -1,12 +1,12 @@
 ---
-title: "11-year-old Dance Star Proves She Can shake It off Way Better than I Ever Could ..."
+title: "11-year-old Dance Star Proves She Can \"shake It off\" Way Better than I Ever Could ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/11-year-old-dance-star-proves-she-can-shake-it-off-way-better-than-i-ever-could/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 11\-year\-old Dance Star Proves She Can shake It off Way Better than I Ever Could ...
+# 11\-year\-old Dance Star Proves She Can "shake It off" Way Better than I Ever Could ...
 
 Taylor Hatala, the 11-year-old dance prodigy who blew everyone's minds with a now-viral video of her dancing to Nicki Minaj's "Anaconda," is back at it! This time, she's dancing to an amazing remix of Taylor Swift's hit song, "Shake It Off". The video features Taylor dancing alongside the choreographer, Matt Steffanina, who recently performed with Taylor Swift herself at the American Music Awards! It's 90 seconds of pure genius; really, this girl's got some serious moves. Like, way, way better than I could ever do. Check it out:
 
@@ -16,18 +16,18 @@ Mind blowing stuff, right?
 
 ## Related Posts
 
-- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
 - [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
+- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
 - [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
-- [aniston cake](https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/)
 - [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
-- [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
-- [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
-- [victoria secret models no makeup](https://makeup.allwomenstalk.com/the-power-of-makeup-wait-til-you-see-these-victoria-secrets-models-au-naturel/)
 - [helen mirren casual clothes](https://celebs.allwomenstalk.com/gorgeous-at-every-age-a-peek-inside-helen-mirrens-lookbook/)
+- [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
 - [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [A Moms View on Britney Spears ...](https://allwomenstalk.com/a-moms-view-on-britney-spears/)
+- [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
+- [victoria secret models no makeup](https://makeup.allwomenstalk.com/the-power-of-makeup-wait-til-you-see-these-victoria-secrets-models-au-naturel/)
+- [aniston cake](https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/)
+- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
+- [A Mom's View on Britney Spears ...](https://allwomenstalk.com/a-moms-view-on-britney-spears/)
 
 ## Site Information
 

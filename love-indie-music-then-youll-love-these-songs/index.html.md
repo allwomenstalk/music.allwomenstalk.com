@@ -1,12 +1,12 @@
 ---
-title: "Love Indie Music? then Youll Love These 7 Songs ..."
+title: "Love Indie Music? then You'll Love These 7 Songs ..."
 description: "Two Heads by Coleman Hell; Hold Each Other by a Great Big World; Ex’s & Oh’s by Elle King; All Time Low by Jon Bellion; Where the Sky Hangs by Passion Pit; More ..."
 url: "https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Love Indie Music? then Youll Love These 7 Songs ...
+# Love Indie Music? then You'll Love These 7 Songs ...
 
 Lately, I haven’t had the chance to explore the newest indie tracks that are out there, but thankfully I’ve stumbled upon a few great songs here and there. Although for the most part I am a fan of indie and alternative music, some of these songs may be categorized closer to other genres. However, since I enjoyed them despite my conflicting musical interests, I thought some of you would too. So here are a few songs you should definitely give a listen!
 
@@ -44,15 +44,15 @@ Sources: [pitchfork.com](https://pitchfork.com/news/58554-passion-pit-and-madeon
 
 ## Related Posts
 
-- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
 - [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
+- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
 - [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
 - [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Best Celebs with Indie Style ...](https://allwomenstalk.com/7-best-celebs-with-indie-style/)

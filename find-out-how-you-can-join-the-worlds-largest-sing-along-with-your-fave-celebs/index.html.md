@@ -1,12 +1,12 @@
 ---
-title: "Find out How You Can Join the Worlds Largest Sing-along with Your Fave Celebs ..."
+title: "Find out How You Can Join the World's Largest Sing-along with Your Fave Celebs ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/find-out-how-you-can-join-the-worlds-largest-sing-along-with-your-fave-celebs/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Find out How You Can Join the Worlds Largest Sing\-along with Your Fave Celebs ...
+# Find out How You Can Join the World's Largest Sing\-along with Your Fave Celebs ...
 
 UNICEF just launched the #Imagine project as part of celebrations for the twenty-fifth anniversary of the Convention on the Rights of the Child. In the powerful video, celebrities were joined by non-celebs in covering John Lennon's iconic anthem, "Imagine". Stars like Katy Perry, Suki Waterhouse, Cody Simpson, Scott Foley and more lent their voice to the cover in hopes of bringing awareness to children's rights.
 
@@ -16,16 +16,16 @@ Here's where things get interesting... YOU can share your voice and be apart of 
 
 ## Related Posts
 
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-8/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-5/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-9/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-4/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-6/)
-- [Youtube Star Covers all I Want for Christmas in 20...](https://music.allwomenstalk.com/youtube-star-covers-all-i-want-for-christmas-in-different-celeb-voices/)
-- [Suicide Squad Cast Announcement Includes Major Hol...](https://movies.allwomenstalk.com/suicide-squad-cast-announcement-includes-major-hollywood-a-listers/)
+- [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-4/)
+- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-7/)
+- [Youtube Star Covers "all I Want for Christmas" in ...](https://music.allwomenstalk.com/youtube-star-covers-all-i-want-for-christmas-in-different-celeb-voices/)
+- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-8/)
+- ["Suicide Squad" Cast Announcement Includes Major H...](https://movies.allwomenstalk.com/suicide-squad-cast-announcement-includes-major-hollywood-a-listers/)
 - [7 Times John Legend and Chrissy Teigen Proved They...](https://love.allwomenstalk.com/times-john-legend-and-chrissy-teigen-proved-theyre-the-cutest-couple/)
-- [7 Celebs Whod Be Fab BFFs ...](https://celebs.allwomenstalk.com/celebs-whod-be-fab-bffs/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-7/)
+- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-6/)
+- [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-5/)
+- [7 Celebs Who'd Be Fab BFFs ...](https://celebs.allwomenstalk.com/celebs-whod-be-fab-bffs/)
+- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-9/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [The Summer of Musical Reunions ...](https://allwomenstalk.com/the-summer-of-musical-reunions/)
 

@@ -1,12 +1,12 @@
 ---
-title: "17 Intelligent Rap Songs to Have You Dropping Beats and Deep Thoughts ..."
+title: "17 Intelligent 🤓 Rap Songs to Have You Dropping Beats and Deep Thoughts ..."
 description: "“Lose Yourself” – Eminem; “Moment of Clarity” – Jay-Z; “N.Y. State of Mind” – Nas; “Poetic Justice” – Kendrick Lamar; “Superstar” – Lupe Fiasco; More ..."
 url: "https://music.allwomenstalk.com/intelligent-rap-songs-that-will-make-you-think/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 17 Intelligent  Rap Songs to Have You Dropping Beats and Deep Thoughts ...
+# 17 Intelligent 🤓 Rap Songs to Have You Dropping Beats and Deep Thoughts ...
 
 If you know me, you know I love rap and hip hop – really smart, intelligent rap, especially. That's not the only kind I like, but it's my favorite because I think smart, truly on point and poetic rap can send a great message. These are the songs that make me think – and yeah, there'll probably be a lot of Eminem on here, just to let you know. Some of them are lyrically clever and some of them come with a deep message. Share your favorite songs, too!
 
@@ -82,15 +82,15 @@ Now seriously, share your favorite beats! What's the smartest rap song you've ev
 
 ## Related Posts
 
-- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
-- [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
 - [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
+- [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
+- [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
+- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
+- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
+- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
+- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
 - [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
-- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
-- [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
-- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
-- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
 - [7 Great Country Songs ...](https://allwomenstalk.com/7-great-country-songs/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)

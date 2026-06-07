@@ -3,7 +3,7 @@ title: "Sad Songs That Will Totally Break Your Heart ..."
 description: "Last Kiss by Taylor Swift; Don’t Think Twice It’s Alright by Bob Dylan; Camouflage by Selena Gomez; Landslide by Fleetwood Mac; Let It Be Me by Ray LaMontagne; More ..."
 url: "https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Sad Songs That Will Totally Break Your Heart ...
@@ -42,18 +42,18 @@ What is your favorite song when you’re feeling down? Do any of these make the 
 
 ## Related Posts
 
-- [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
-- [saddest broadway songs](https://music.allwomenstalk.com/the-most-tearjerking-songs-from-broadway-musicals/)
-- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
-- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
-- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
-- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
-- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
-- [sad songs to listen to when you miss someone](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-missing-someone/)
-- [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
 - [skin rihanna lyrics](https://music.allwomenstalk.com/seductive-songs-to-listen-to-during-sex/)
+- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
+- [sad songs to listen to when you miss someone](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-missing-someone/)
+- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
+- [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
+- [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
+- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
+- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
+- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
+- [saddest broadway songs](https://music.allwomenstalk.com/the-most-tearjerking-songs-from-broadway-musicals/)
 - [Heartaches ...](https://allwomenstalk.com/heartaches/)
-- [9 Songs about Unrequited Love You Cant Resist List...](https://allwomenstalk.com/10-best-broken-heart-songs/)
+- [9 Songs about Unrequited Love You Can't Resist Lis...](https://allwomenstalk.com/10-best-broken-heart-songs/)
 
 ## Site Information
 

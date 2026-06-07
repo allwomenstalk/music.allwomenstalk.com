@@ -1,12 +1,12 @@
 ---
-title: "11 Amazing Movie Soundtracks from the 90s ..."
+title: "11 Amazing Movie Soundtracks from the '90s ..."
 description: "Empire Records; Natural Born Killers; Romeo + Juliet; Mallrats; Armageddon; More ..."
 url: "https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 11 Amazing Movie Soundtracks from the 90s ...
+# 11 Amazing Movie Soundtracks from the '90s ...
 
 Going into this, I know that choosing the most amazing movie soundtracks from the '90s is an almost impossible undertaking. Given the nostalgia for the era, the wealth of really excellent music, and the sheer number of movies that have attained cult status, either for being good or for being awful, picking just a few official soundtracks is almost impossible. Music is incredibly subjective anyway, so my favorites won't be your favorites and your favorites may not tickle someone else's fancy. So this is no definitive list of the best movie soundtracks from the '90s, but in the estimation of the unholy triumvirate – myself, the Better Half, and our friend Pickles – this list does contain some real lyrical gems. However, it calls out for your additions too!
 
@@ -102,16 +102,16 @@ The '90s really were kind of magical in retrospect, and there were some damn goo
 
 ## Related Posts
 
-- [romantic music for making love](https://love.allwomenstalk.com/romantic-songs-to-listen-to-during-a-make-out-session/)
-- [what to do when youre fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
-- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
-- [early who songs](https://music.allwomenstalk.com/awesome-early-songs-by-david-bowie/)
-- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
-- [picture of rainfall](https://travel.allwomenstalk.com/pictures-of-rain-that-will-make-you-want-to-sing/)
 - [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [romantic music for making love](https://love.allwomenstalk.com/romantic-songs-to-listen-to-during-a-make-out-session/)
+- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
 - [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
+- [early who songs](https://music.allwomenstalk.com/awesome-early-songs-by-david-bowie/)
+- [picture of rainfall](https://travel.allwomenstalk.com/pictures-of-rain-that-will-make-you-want-to-sing/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 

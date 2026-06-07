@@ -1,12 +1,12 @@
 ---
-title: "7 Amazing John Mayer Songs Ill Never Get Tired of ..."
+title: "7 Amazing John Mayer Songs I'll Never Get Tired of ..."
 description: "Your Body is a Wonderland; Waiting on the World to Change; Heartbreak Warfare; Who You Love (ft. Katy Perry); Half of My Heart; More ..."
 url: "https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Amazing John Mayer Songs Ill Never Get Tired of ...
+# 7 Amazing John Mayer Songs I'll Never Get Tired of ...
 
 There are so many John Mayer songs that I could listen to over and over again without getting tired of them. I mean, the man is a lyrical genius. I'm so bummed that I didn't go to his most recent tour with Phillip Phillips. I bet it was amazing. If you had the pleasure of going, chances are I'm 100% jealous of you! Here are the seven John Mayer songs that I can listen to time and time again.
 
@@ -42,13 +42,13 @@ Well, there you have it! These are just seven out of MANY John Mayer songs that 
 
 ## Related Posts
 
-- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
-- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
-- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
-- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
 - [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
-- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
+- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
 - [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
+- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
+- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
+- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
+- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
 - [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
 - [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
 - [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)

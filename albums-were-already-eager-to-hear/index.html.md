@@ -1,12 +1,12 @@
 ---
-title: "2016 Albums Were Already Eager to Hear ..."
+title: "2016 Albums We're Already Eager to Hear ..."
 description: "Gwen Stefani’s Untitled Album; Frank Ocean’s Boys Don’t Cry; Taylor Swift’s Untitled Album; Panic! at the Disco’s Death of a Bachelor; The 1975’s I like It when You Sleep…; More ..."
 url: "https://music.allwomenstalk.com/albums-were-already-eager-to-hear/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 2016 Albums Were Already Eager to Hear ...
+# 2016 Albums We're Already Eager to Hear ...
 
 2016 is already shaping up to be a great year for music. There are so many anticipated albums, whether they’ve already been announced or are expected be released sometime over the next year, that are sure to completely change the music game. These are definitely some of the biggest albums to look forward to in the upcoming year!
 
@@ -54,16 +54,16 @@ What album are you most looking forward to in 2016? Let me know in the comments!
 
 ## Related Posts
 
-- [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
-- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
+- [😮🎄 christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
+- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
+- [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
 - [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
 - [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
-- [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
 - [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
-- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
-- [christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
-- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
 - [benefit listening music](https://music.allwomenstalk.com/the-many-benefits-of-listening-to-music/)
+- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
+- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
+- [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
 - [8 of My Favorite Music Albums from 2010 ...](https://allwomenstalk.com/of-my-favorite-music-albums-from/)
 - [10 Best Albums of 2010 ...](https://allwomenstalk.com/best-albums-of/)
 

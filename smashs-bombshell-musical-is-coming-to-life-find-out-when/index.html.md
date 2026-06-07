@@ -1,12 +1,12 @@
 ---
-title: "SMASHs Bombshell Musical is Coming to Life! Find out when! ..."
+title: "SMASH's \"Bombshell\" Musical is Coming to Life! Find out when! ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/smashs-bombshell-musical-is-coming-to-life-find-out-when/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# SMASHs Bombshell Musical is Coming to Life! Find out when! ...
+# SMASH's "Bombshell" Musical is Coming to Life! Find out when! ...
 
 Smash is back! Well, sort of. The (sadly) short-lived NBC series that starred Katharine McPhee and Megan Hilty is bringing Bombshell, the Marilyn Monroe musical, to life for one night only. It'll be a special benefit concert for The Actors Fund and tickets will go on sale in early 2015!
 
@@ -18,18 +18,18 @@ Will you be buying tickets?!
 
 ## Related Posts
 
-- [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
-- [stories about kings and queens](https://lifestyle.allwomenstalk.com/of-the-craziest-kings-and-queens-in-history/)
-- [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
-- [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
-- [stalkers greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
-- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
-- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
-- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
-- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
 - [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
-- [Bond Girls: the West Side Awaits](https://allwomenstalk.com/bond-girls-the-west-side-awaits/)
-- [Bond Girls: the West Side Awaits](https://allwomenstalk.com/bond-girls-the-west-side-awaits-3/)
+- [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
+- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
+- [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
+- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
+- [stalker's greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
+- [stories about kings and queens](https://lifestyle.allwomenstalk.com/of-the-craziest-kings-and-queens-in-history/)
+- [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
+- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
+- [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
+- [Bond Girls: the West Side Awaits!](https://allwomenstalk.com/bond-girls-the-west-side-awaits/)
+- [Bond Girls: the West Side Awaits!](https://allwomenstalk.com/bond-girls-the-west-side-awaits-3/)
 
 ## Site Information
 

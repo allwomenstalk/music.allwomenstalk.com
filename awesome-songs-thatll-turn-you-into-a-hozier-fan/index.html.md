@@ -1,12 +1,12 @@
 ---
-title: "7 Awesome Songs Thatll Turn You into a Hozier Fan ..."
+title: "7 Awesome Songs That'll Turn You into a Hozier Fan ..."
 description: "Sedated; Take Me to Church; Work Song; Like Real People do; Cherry Wine (live); More ..."
 url: "https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Awesome Songs Thatll Turn You into a Hozier Fan ...
+# 7 Awesome Songs That'll Turn You into a Hozier Fan ...
 
 Trust me when I tell you this, there are SO many songs that'll turn you into a Hozier fan if you aren't already. I don't know how it took me this long to discover his incredible music but I'm so glad that I did. I recently bought his self-titled album and think it's the best money I've spent on iTunes. Every song is gold. If you haven't had the time to fall in love with him yet, listen to these songs that'll turn you into a Hozier fan. You're welcome.
 
@@ -43,15 +43,15 @@ Well, there you have it. These are just seven out of many incredibly beautiful a
 ## Related Posts
 
 - [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
-- [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
-- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
-- [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
-- [1989 album covers](https://music.allwomenstalk.com/this-mash-up-cover-of-taylor-swifts-entire-album-is-awesome/)
 - [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
-- [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
-- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
+- [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
 - [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
 - [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
+- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
+- [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
+- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
+- [1989 album covers](https://music.allwomenstalk.com/this-mash-up-cover-of-taylor-swifts-entire-album-is-awesome/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

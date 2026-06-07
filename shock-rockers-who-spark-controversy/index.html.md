@@ -3,7 +3,7 @@ title: "Shock Rockers Who Sparked Controversy Arriving on the Music Scene ..."
 description: "Screamin’ Jay Hawkins; Alice Cooper; Marilyn Manson; Rob Zombie; Ozzy Osbourne; More ..."
 url: "https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Shock Rockers Who Sparked Controversy Arriving on the Music Scene ...
@@ -56,16 +56,16 @@ Each of these shock rockers did something out of the ordinary at the time that g
 
 ## Related Posts
 
-- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
 - [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
 - [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
 - [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
-- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [Backstage Buzz at the SAG Awards ...](https://bilbr.com/backstage-buzz-at-the-sag-awards/)
 - [Fall out Boy Got Streamed Live ...](https://allwomenstalk.com/fall-out-boy-got-streamed-live/)
 

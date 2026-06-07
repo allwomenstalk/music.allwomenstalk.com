@@ -1,12 +1,12 @@
 ---
-title: "7 Sweet Soulful Songs by Matt Hires ..."
+title: "7 Sweet, Soulful Songs by Matt Hires ..."
 description: "Honey, Let Me Sing You a Song; Restless Heart; Forever; Out of the Dark; Wishing on Dead Stars; More ..."
 url: "https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Sweet Soulful Songs by Matt Hires ...
+# 7 Sweet, Soulful Songs by Matt Hires ...
 
 I'm officially in love with all the songs by Matt Hires I've heard so far. I first heard the singer/songwriter on a TV show best left unmentioned because it's trashy and I shouldn't watch it, but at least one good thing came out of it. Now the beautiful boy with the equally beautiful voice is everywhere! To me he sounds a little like Mumford and Sons, Dave Matthews (yum!), and Adam Duritz, but don't make the Counting Crows comparison – he's tired of hearing it! If you love poetic turns of phrase and ballads with meaning, though, stick these songs by Matt Hires on your playlist. I promise you won't be sorry!
 
@@ -56,16 +56,16 @@ What do you think of Matt Hires? The sad thing is, I could have included his ent
 
 ## Related Posts
 
-- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
 - [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [7 Love Songs of 2011 ...](https://love.allwomenstalk.com/love-songs-of/)
 

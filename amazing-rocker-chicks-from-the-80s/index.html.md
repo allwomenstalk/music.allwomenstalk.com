@@ -1,12 +1,12 @@
 ---
-title: "9 Amazing Rocker Chicks from the 80s ..."
+title: "9 Amazing Rocker Chicks from the '80s ..."
 description: "Pat Benatar; Ann and Nancy Wilson; Lita Ford; Joan Jett; Chrissie Hynde; More ..."
 url: "https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Amazing Rocker Chicks from the 80s ...
+# 9 Amazing Rocker Chicks from the '80s ...
 
 If you loved the '80s as much as I did, it's a perfect time to focus on some amazing rocker chicks from the '80s. This is a great way to relive our childhoods and rock out to the songs that remind us of the fun times and challenges of adolescence. Without further ado, let's celebrate nine amazing rocker chicks from the '80s.
 
@@ -50,16 +50,16 @@ Rocker chicks of the '80s paved the way for an immeasurable amount of female art
 
 ## Related Posts
 
-- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
 - [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
 - [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
-- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
 - [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
 - [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
+- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
 - [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
-- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
+- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
+- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)
 

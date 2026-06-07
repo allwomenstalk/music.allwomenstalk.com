@@ -1,12 +1,12 @@
 ---
-title: "19 Older Songs Too Good to Not Listen to ASAP ..."
+title: "19 Older Songs Too Good to Not Listen to ASAP ⏰ ..."
 description: "Rag'n'Bone-Human; Kendrick Lamar-the Heart Part 4; Drake-Passionfruit; Zayn-Still Got Time (feat. Partynextdoor); Gorillaz-Ascension (feat. Vince Staples); More ..."
 url: "https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 19 Older Songs Too Good to Not Listen to ASAP  ...
+# 19 Older Songs Too Good to Not Listen to ASAP ⏰ ...
 
 Every month there's tons and tons of new songs released, so many so that a lot get overlooked when they're actually phenomenal! Here’s some from 2016 that probably went overlooked, so throw on that “oldies” and listen to this list of 19 songs that are just as epic today as they were back then!
 
@@ -90,16 +90,16 @@ What new songs do you love lately? Are you stealing any of these for your new pl
 
 ## Related Posts
 
-- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
-- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
-- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
-- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
-- [chores of a song](https://music.allwomenstalk.com/be-inspired-to-do-your-chores-by-these-music-videos/)
-- [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
 - [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
+- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
+- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
+- [chores of a song](https://music.allwomenstalk.com/be-inspired-to-do-your-chores-by-these-music-videos/)
+- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
+- [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
 - [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
-- [songs for beautiful girl](https://music.allwomenstalk.com/flaunt-your-girl-power-with-these-empowering-songs/)
 - [jammin songs](https://music.allwomenstalk.com/summer-songs-to-get-you-groovin/)
+- [songs for beautiful girl](https://music.allwomenstalk.com/flaunt-your-girl-power-with-these-empowering-songs/)
+- [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

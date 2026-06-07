@@ -1,12 +1,12 @@
 ---
-title: "9 Nostalgic 90s College Rock Songs That Take You Back in Time ..."
+title: "9 Nostalgic '90s College Rock Songs That Take You Back in Time ..."
 description: "“Crash into Me” – Dave Matthews Band; “Loser” – Beck; “Mr. Jones” – Counting Crows; “One Headlight” – the Wallflowers; “Flagpole Sitta” – Harvey Danger; More ..."
 url: "https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Nostalgic 90s College Rock Songs That Take You Back in Time ...
+# 9 Nostalgic '90s College Rock Songs That Take You Back in Time ...
 
 Although I didn't go to college in the 1990s, I'm a huge fan of '90s college rock songs. College rock was generally alternative with an occasional pop beat, sometimes meaningful and sometimes nonsensical. When you hear it, you have a tendency to think of frat boys and open air concerts, but that doesn't make it any less awesome. Although I spent most of the 1990s listening to Placebo, Nirvana, London After Midnight, and Eminem, I was still very much aware of these songs, which typically brought me out of my moody teenager fugues. Remember, your mileage may vary on what you consider the best '90s college rock songs, so don't be afraid to add the songs you loved!
 
@@ -68,18 +68,18 @@ Most of these songs still have a place on my playlist, especially when I'm feeli
 
 ## Related Posts
 
-- [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
-- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
-- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
-- [90s duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
-- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
-- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
-- [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
-- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
 - [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
+- [90's duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
+- [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
+- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
+- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
+- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
+- [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
+- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
+- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
+- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
 - [9 Fascinatingly Amazing Songs to Blast While in th...](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
-- [Top 10 Songs of the 90s ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
+- [Top 10 Songs of the 90's ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 
 ## Site Information
 

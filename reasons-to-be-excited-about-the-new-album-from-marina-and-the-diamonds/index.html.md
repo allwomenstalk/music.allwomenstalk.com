@@ -1,12 +1,12 @@
 ---
-title: "Its Time to Get Excited about the New Album from Marina & the Diamonds ..."
+title: "It's Time to Get Excited about the New Album from Marina & the Diamonds ..."
 description: "Her New Single; It's Been 2 Years; New Merch; Possible Tour; \"froot of the Month\"; More ..."
 url: "https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Its Time to Get Excited about the New Album from Marina & the Diamonds ...
+# It's Time to Get Excited about the New Album from Marina & the Diamonds ...
 
 There are SO many fantastic reasons to be excited about the new album from Marina & The Diamonds! First of all, NEW ALBUM. Just let that sink in for awhile. It's been a long wait for new music and now the time is getting closer! Here are some reasons to be excited about the new album from Marina & The Diamonds:
 
@@ -42,17 +42,17 @@ Well, there you have it. These are just seven out of many awesome reasons to be 
 
 ## Related Posts
 
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
 - [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
+- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
 - [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
 - [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
-- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
-- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [Im so Ready for Spring ...](https://allwomenstalk.com/im-so-ready-for-spring/)
+- [I'm so Ready for Spring ...](https://allwomenstalk.com/im-so-ready-for-spring/)
 - [Music to Our Eyes ...](https://allwomenstalk.com/music-to-our-eyes/)
 
 ## Site Information

@@ -1,12 +1,12 @@
 ---
-title: "7 Songs about Liking Someone You Shouldnt ..."
+title: "7 Songs about Liking Someone You Shouldn't ..."
 description: "Mr Watson by Kesha; End of Me by a Day to Remember; How Can I Not Love You by Joy Enriquez; Untouchable by Taylor Swift; I Hate Everything about You by Three Days Grace; More ..."
 url: "https://music.allwomenstalk.com/songs-about-liking-someone-you-shouldnt/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Songs about Liking Someone You Shouldnt ...
+# 7 Songs about Liking Someone You Shouldn't ...
 
 We've all been there. Maybe you like someone who's too old for you. Maybe you like someone who's already in a relationship. Or maybe you just like a huge jerk. No matter what the case may be, it's never fun when you develop a crush on someone that you're never going to get. In order to ease the pain, here are a few songs about liking someone you shouldn't:
 
@@ -42,18 +42,18 @@ Don't feel bad if you're crushing on someone you know you shouldn't like. It'll 
 
 ## Related Posts
 
-- [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
-- [songs with word love](https://music.allwomenstalk.com/whats-the-definition-of-love-these-songs-explain-it-perfectly/)
-- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
-- [over and over song](https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/)
-- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
 - [songs about showing up](https://music.allwomenstalk.com/love-is-just-around-the-corner-songs-about-that-special-someone-coming-along/)
-- [angry playlist names](https://music.allwomenstalk.com/upset-angry-elated-a-spotify-playlist-fit-for-every-mood/)
+- [controversial video](https://music.allwomenstalk.com/of-the-most-controversial-music-videos-of-all-time/)
 - [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
-- [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
 - [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
-- [9 Songs about Unrequited Love You Cant Resist List...](https://allwomenstalk.com/10-best-broken-heart-songs/)
-- [10 Things Girls Arent Supposed to Love ...](https://allwomenstalk.com/10-things-girls-arent-supposed-to-love/)
+- [angry playlist names](https://music.allwomenstalk.com/upset-angry-elated-a-spotify-playlist-fit-for-every-mood/)
+- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
+- [songs with word love](https://music.allwomenstalk.com/whats-the-definition-of-love-these-songs-explain-it-perfectly/)
+- [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
+- [over and over song](https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/)
+- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
+- [9 Songs about Unrequited Love You Can't Resist Lis...](https://allwomenstalk.com/10-best-broken-heart-songs/)
+- [10 Things Girls Aren't Supposed to Love ...](https://allwomenstalk.com/10-things-girls-arent-supposed-to-love/)
 
 ## Site Information
 

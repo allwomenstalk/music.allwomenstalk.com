@@ -1,12 +1,12 @@
 ---
-title: "7 Celebrities Who Have Praised Taylor Swifts New Album ..."
+title: "7 Celebrities Who Have Praised Taylor Swift's New Album ..."
 description: "Selena Gomez; Lorde; Lena Dunham; Ed Sheeran; Sarah Hyland; More ..."
 url: "https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Celebrities Who Have Praised Taylor Swifts New Album ...
+# 7 Celebrities Who Have Praised Taylor Swift's New Album ...
 
 Taylor Swift's new album "1989" was released at the end of last month and it's still making headlines. That's because she won't stop breaking records with it! Currently, she has the biggest album in the country with "1989" selling 1.2 million copies in its first week. That's more than ANY other album release this year! Her second week's figures shot as high as 400,000 copies sold and that alone (still) beats any album release this year. Crazy, right? A-list BFFs and celebrity fans were quick to praise Taylor Swift's new album:
 
@@ -56,16 +56,16 @@ Well, there you have it. These are just seven out of many celebrities who have p
 
 ## Related Posts
 
-- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
-- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
-- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
-- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
-- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
-- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
 - [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
+- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
 - [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
+- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
+- [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
+- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
+- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 

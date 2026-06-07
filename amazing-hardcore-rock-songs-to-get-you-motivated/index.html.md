@@ -3,7 +3,7 @@ title: "7 Amazing Hardcore Rock Songs to Get You Motivated ..."
 description: "Best of You by Foo Fighters; Paradise City by Guns N’ Roses; Enter Sandman by Metallica; Runnin’ with the Devil by Van Halen; Back in Black by AC/DC; More ..."
 url: "https://music.allwomenstalk.com/amazing-hardcore-rock-songs-to-get-you-motivated/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Amazing Hardcore Rock Songs to Get You Motivated ...
@@ -56,16 +56,16 @@ I have carefully compiled this list of hardcore rock songs in the hopes that oth
 
 ## Related Posts
 
+- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
 - [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
-- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
-- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
-- [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
-- [the best of the 80s](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
 - [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
-- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
 - [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
+- [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
+- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
+- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
+- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
 - [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
 - [7 Songs for Working out ...](https://allwomenstalk.com/7-songs-for-working-out/)
 

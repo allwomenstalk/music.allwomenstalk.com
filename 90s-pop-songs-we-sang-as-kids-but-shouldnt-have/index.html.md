@@ -1,12 +1,12 @@
 ---
-title: "7 90s Pop Songs We Sang as Kids but Shouldnt Have ..."
+title: "7 90s Pop Songs We Sang as Kids but Shouldn't Have ..."
 description: "\"the Bad Touch\"- the Bloodhound Gang; “when the Lights Go out”- 5ive; “baby One More Time”-Britney Spears; \"C'est La Vie\"- B*Witched; \"Genie in a Bottle\" – Christina Aguilera; More ..."
 url: "https://music.allwomenstalk.com/90s-pop-songs-we-sang-as-kids-but-shouldnt-have/"
 category: "music"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 90s Pop Songs We Sang as Kids but Shouldnt Have ...
+# 7 90s Pop Songs We Sang as Kids but Shouldn't Have ...
 
 As a young girl, I enjoyed a lot of 90s pop songs. If you were born in the 80s or very early 90s and grew up during the time when pop music was really taking over the radio airways, then you would remember a few songs that were catchy to the ear. However, a lot of these songs were very sexual by nature, but a young child with innocent ears wouldn't have realized that either way. Check out some of the dirty 90s pop songs we sang as kids, but really shouldn't have.
 
@@ -44,16 +44,16 @@ No matter how great the beat and singing may sound, it's the song's lyrics that 
 
 ## Related Posts
 
-- [ladies night songs playlist](https://music.allwomenstalk.com/amazing-songs-for-girls-night/)
-- [songs by fun band](https://music.allwomenstalk.com/unique-and-fun-band-and-song-names/)
-- [meaningful country songs](https://music.allwomenstalk.com/inspirational-country-songs-for-when-youre-feeling-down/)
 - [indie arie boyfriend](https://music.allwomenstalk.com/empowering-songs-from-india-arie/)
-- [song about secretly loving someone](https://music.allwomenstalk.com/love-songs-every-girl-secretly-wishes-was-written-for-them/)
-- [the most live](https://music.allwomenstalk.com/incredible-live-performances-from-panic-at-the-disco/)
-- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
-- [wer singt das lied](https://music.allwomenstalk.com/realizations-from-natasha-bedingfields-unwritten/)
 - [no change of heart a change in me](https://music.allwomenstalk.com/broadway-songs-that-are-relatable/)
+- [the most live](https://music.allwomenstalk.com/incredible-live-performances-from-panic-at-the-disco/)
+- [song about secretly loving someone](https://music.allwomenstalk.com/love-songs-every-girl-secretly-wishes-was-written-for-them/)
+- [songs by fun band](https://music.allwomenstalk.com/unique-and-fun-band-and-song-names/)
 - [funny songs adult](https://funny.allwomenstalk.com/silly-songs-about-not-wanting-to-grow-up/)
+- [wer singt das lied](https://music.allwomenstalk.com/realizations-from-natasha-bedingfields-unwritten/)
+- [ladies night songs playlist](https://music.allwomenstalk.com/amazing-songs-for-girls-night/)
+- [meaningful country songs](https://music.allwomenstalk.com/inspirational-country-songs-for-when-youre-feeling-down/)
+- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
 - [10 Great Foreign Pop Songs ...](https://allwomenstalk.com/10-great-foreign-pop-songs/)
 - [7 Famous Songs That Send a Bad Message ...](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
 
