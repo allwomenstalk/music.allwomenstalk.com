@@ -3,7 +3,7 @@ title: "It's Time to Get Excited about the New Album from Marina & the Diamonds 
 description: "Her New Single; It's Been 2 Years; New Merch; Possible Tour; \"froot of the Month\"; More ..."
 url: "https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/"
 category: "music"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # It's Time to Get Excited about the New Album from Marina & the Diamonds ...
@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many awesome reasons to be 
 
 ## Related Posts
 
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
-- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
+- [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
 - [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
 - [best songs](https://music.allwomenstalk.com/best-songs-for-the-melancholy-soul/)
-- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
 - [I'm so Ready for Spring ...](https://allwomenstalk.com/im-so-ready-for-spring/)
 - [Music to Our Eyes ...](https://allwomenstalk.com/music-to-our-eyes/)
 

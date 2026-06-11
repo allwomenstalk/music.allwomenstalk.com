@@ -3,7 +3,7 @@ title: "11 Jaw Dropping Covers by Birdy That Are Truly Humbling ..."
 description: "Skinny Love; Young Blood; 1901; The District Sleeps Alone Tonight; Shelter; More ..."
 url: "https://music.allwomenstalk.com/jaw-dropping-covers-by-birdy-that-are-truly-humbling/"
 category: "music"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 11 Jaw Dropping Covers by Birdy That Are Truly Humbling ...
@@ -58,16 +58,16 @@ With incredible talent like this, it won't be long before Ms. Jasmine van den Bo
 
 ## Related Posts
 
-- [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
-- [one hit wonders in the 90's](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
-- [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
-- [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
-- [sinatra frank songs](https://music.allwomenstalk.com/jazzy-songs-by-frank-sinatra-that-truly-inspire-me/)
-- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
-- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
-- [lauryn hill breakup songs](https://music.allwomenstalk.com/90s-songs-about-heartbreak-to-help-you-through-a-breakup/)
-- [booty work lyrics](https://music.allwomenstalk.com/silliest-booty-references-in-songs/)
 - [music festivals are overrated](https://music.allwomenstalk.com/amazing-music-festivals-everyone-should-try-and-attend/)
+- [booty work lyrics](https://music.allwomenstalk.com/silliest-booty-references-in-songs/)
+- [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
+- [one hit wonders in the 90's](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
+- [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
+- [listening movies](https://movies.allwomenstalk.com/movies-with-awesome-soundtracks-you-cant-stop-listening-to/)
+- [lauryn hill breakup songs](https://music.allwomenstalk.com/90s-songs-about-heartbreak-to-help-you-through-a-breakup/)
+- [sinatra frank songs](https://music.allwomenstalk.com/jazzy-songs-by-frank-sinatra-that-truly-inspire-me/)
+- [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
+- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
 - [5 Awesome Birds ...](https://gardening.allwomenstalk.com/5-awesome-birds/)
 - [8 Cool Song Covers ...](https://allwomenstalk.com/cool-song-covers/)
 

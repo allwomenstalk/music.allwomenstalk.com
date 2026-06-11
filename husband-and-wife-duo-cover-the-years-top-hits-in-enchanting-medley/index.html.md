@@ -3,7 +3,7 @@ title: "Husband and Wife Duo Cover the Year's Top Hits in Enchanting Medley ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/"
 category: "music"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Husband and Wife Duo Cover the Year's Top Hits in Enchanting Medley ...
@@ -14,16 +14,16 @@ If you like what you heard, make sure you follow them on Twitter @UsTheDuo! Of t
 
 ## Related Posts
 
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
-- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
 - [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
 - [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
-- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
 - [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
+- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
 - [The Summer of Musical Reunions ...](https://allwomenstalk.com/the-summer-of-musical-reunions/)
 - [McWeddings by Disney ...](https://allwomenstalk.com/mcweddings-by-disney/)
 

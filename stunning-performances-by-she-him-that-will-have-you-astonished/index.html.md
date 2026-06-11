@@ -3,7 +3,7 @@ title: "9 Stunning Performances by She & Him That Will Have You Astonished ..."
 description: "Sentimental Heart; Never Wanted Your Love; Stars Fell on Alabama; Turn to White; Brand New Shoes; More ..."
 url: "https://music.allwomenstalk.com/stunning-performances-by-she-him-that-will-have-you-astonished/"
 category: "music"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Stunning Performances by She & Him That Will Have You Astonished ...
@@ -51,15 +51,15 @@ After watching these performances on multiple occasions, I can attest to the fac
 ## Related Posts
 
 - [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
-- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
-- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
-- [breakup empowerment songs](https://music.allwomenstalk.com/songs-to-cry-your-eyes-out-to-after-a-breakup/)
-- [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
-- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
-- [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
-- [songs with phone in the title](https://music.allwomenstalk.com/songs-about-the-telephone-that-will-make-you-want-to-call/)
 - [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
+- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
+- [breakup empowerment songs](https://music.allwomenstalk.com/songs-to-cry-your-eyes-out-to-after-a-breakup/)
+- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
+- [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
+- [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
 - [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
+- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
+- [songs with phone in the title](https://music.allwomenstalk.com/songs-about-the-telephone-that-will-make-you-want-to-call/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 
