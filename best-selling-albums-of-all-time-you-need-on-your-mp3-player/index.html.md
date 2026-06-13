@@ -3,7 +3,7 @@ title: "7 Best-Selling Albums of All Time You Need on Your MP3 Player ..."
 description: "Michael Jackson's Thriller (1982); Eagles' Greatest Hits (1976); AC/DC's Back in Black (1980); The Bodyguard Soundtrack (1992); Pink Floyd's the Dark Side of the Moon (1973); More ..."
 url: "https://music.allwomenstalk.com/best-selling-albums-of-all-time-you-need-on-your-mp3-player/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Best\-Selling Albums of All Time You Need on Your MP3 Player ...
@@ -70,15 +70,15 @@ These are some of my favourite albums of all time which have topped the album ch
 
 ## Related Posts
 
-- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
-- [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
-- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
 - [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
-- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
+- [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
 - [paris color riche le smoky bottomless](https://music.allwomenstalk.com/of-pnks-music-videos-we-cant-get-enough-of/)
 - [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
-- [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
+- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
 - [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
+- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
 - [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
 - [7 Great CDs for Children ...](https://allwomenstalk.com/7-great-cds-for-children/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)

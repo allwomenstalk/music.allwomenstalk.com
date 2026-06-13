@@ -3,7 +3,7 @@ title: "10 One Hit Wonders We Love ..."
 description: "Tubthumping - Chumbawamba; Never Gonna Give You up - Rick Astley; Come on Eileen - Dexys Midnight Runners; Teenage Dirtbag - Wheatus; Eye of the Tiger - Survivor; More ..."
 url: "https://music.allwomenstalk.com/one-hit-wonders-we-love/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 10 One Hit Wonders We Love ...
@@ -54,16 +54,16 @@ Perhaps the real reason these bands are only one hit wonders is that the songs t
 
 ## Related Posts
 
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
-- [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
-- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
 - [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
 - [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
+- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
+- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 

@@ -3,7 +3,7 @@ title: "Husband and Wife Duo Cover the Year's Top Hits in Enchanting Medley ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Husband and Wife Duo Cover the Year's Top Hits in Enchanting Medley ...
@@ -15,14 +15,14 @@ If you like what you heard, make sure you follow them on Twitter @UsTheDuo! Of t
 ## Related Posts
 
 - [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
 - [The 10 Most Re-Tweeted Songs of 2014 ...](https://music.allwomenstalk.com/the-most-re-tweeted-songs-of/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
+- [turning 15 songs](https://music.allwomenstalk.com/songs-that-are-turning-in/)
+- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
 - [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
 - [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
 - [The Summer of Musical Reunions ...](https://allwomenstalk.com/the-summer-of-musical-reunions/)
 - [McWeddings by Disney ...](https://allwomenstalk.com/mcweddings-by-disney/)

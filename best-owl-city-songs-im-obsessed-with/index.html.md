@@ -3,7 +3,7 @@ title: "7 Best Owl City Songs I'm Obsessed with ..."
 description: "Vanilla Twilight; The Technicolor Phase; Butterfly Wings; Embers; Fireflies; More ..."
 url: "https://music.allwomenstalk.com/best-owl-city-songs-im-obsessed-with/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Best Owl City Songs I'm Obsessed with ...
@@ -42,16 +42,16 @@ Now that you know exactly what Owl City songs are my favorite, do you have some 
 
 ## Related Posts
 
-- [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
 - [sinatra frank songs](https://music.allwomenstalk.com/jazzy-songs-by-frank-sinatra-that-truly-inspire-me/)
+- [one hit wonders in the 90's](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
 - [lauryn hill breakup songs](https://music.allwomenstalk.com/90s-songs-about-heartbreak-to-help-you-through-a-breakup/)
 - [booty work lyrics](https://music.allwomenstalk.com/silliest-booty-references-in-songs/)
-- [one hit wonders in the 90's](https://music.allwomenstalk.com/of-the-best-one-hit-wonders-from-the-90s/)
-- [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
 - [birdy vocal range](https://music.allwomenstalk.com/jaw-dropping-covers-by-birdy-that-are-truly-humbling/)
+- [90 songs](https://music.allwomenstalk.com/romantic-90s-songs-that-will-make-you-feel-nostalgic/)
 - [eminem singing](https://music.allwomenstalk.com/relatable-and-inspirational-eminem-songs-to-listen-to/)
-- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
 - [well known disney songs](https://music.allwomenstalk.com/favorite-fantastic-disney-songs/)
+- [bands i should listen to](https://music.allwomenstalk.com/bands-you-should-be-listening-to-now/)
+- [songs with snow in the lyrics](https://music.allwomenstalk.com/romantic-songs-about-winter-for-a-cozy-night-in/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 

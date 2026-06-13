@@ -3,7 +3,7 @@ title: "15 Great Songs to Dedicate to Your Best Friend ..."
 description: "\"we're Going to Be Friends\"; \"you're My Best Friend\"; \"you've Got a Friend in Me\"; \"i'll Be There for You\"; \"count on Me\"; More ..."
 url: "https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 15 Great Songs to Dedicate to Your Best Friend ...
@@ -77,15 +77,15 @@ This article was written in collaboration with editor Lydia Sheehan.
 ## Related Posts
 
 - [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
-- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
-- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
 - [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
-- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
-- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
-- [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
+- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
 - [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
+- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
+- [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
 - [paris color riche le smoky bottomless](https://music.allwomenstalk.com/of-pnks-music-videos-we-cant-get-enough-of/)
 - [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
+- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
 - [15 Sweet Things to Say to Your Boyfriend ...](https://allwomenstalk.com/8-sweet-things-to-say-to-your-boyfriend/)
 - [7 Romantic Songs for Your Wedding ...](https://allwomenstalk.com/7-romantic-songs-for-your-wedding/)
 

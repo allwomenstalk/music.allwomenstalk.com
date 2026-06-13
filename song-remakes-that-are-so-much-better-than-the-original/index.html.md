@@ -3,7 +3,7 @@ title: "9 Song Remakes That Are so Much Better than the Original ..."
 description: "Jose Gonzalez – Heartbeats; The Bangles – Hazy Shade of Winter; Jeff Buckley – Hallelujah; Elwood – Sundown; Jerry Douglas Feat. Mumford & Sons – the Boxer; More ..."
 url: "https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Song Remakes That Are so Much Better than the Original ...
@@ -77,16 +77,16 @@ Which of these remakes do you like better than the original? Or is there a great
 
 ## Related Posts
 
-- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
 - [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
 - [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
 - [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Hollywood Remakes ...](https://movies.allwomenstalk.com/worst-hollywood-remakes/)
 

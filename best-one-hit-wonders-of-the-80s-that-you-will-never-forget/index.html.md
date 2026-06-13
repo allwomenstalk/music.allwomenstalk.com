@@ -3,7 +3,7 @@ title: "9 Best One Hit Wonders of the 80's That You Will Never Forget ..."
 description: "Dexy's Midnight Runners - Come on Eileen; A Flock of Seagulls - I Ran (so Far Away); A-Ha - Take on Me; Devo - Whip It; Toni Basil - Mickey; More ..."
 url: "https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/"
 category: "music"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Best One Hit Wonders of the 80's That You Will Never Forget ...
@@ -66,15 +66,15 @@ There were so many songs that came out in the 80’s that were great. I only did
 
 ## Related Posts
 
+- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
+- [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
 - [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
 - [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
+- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
+- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
 - [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
 - [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
 - [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
-- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
-- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
-- [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
 - [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 - [9 Memorable TV Theme Songs ...](https://lifestyle.allwomenstalk.com/memorable-tv-theme-songs/)
