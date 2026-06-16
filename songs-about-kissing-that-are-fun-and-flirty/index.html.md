@@ -3,7 +3,7 @@ title: "7 Songs about Kissing That Are Fun and Flirty ..."
 description: "Hands All over by Maroon 5; Kiss You by One Direction; Kiss Me by New Found Glory; I Wanna by All American Rejects; Just a Kiss by Lady Antebellum; More ..."
 url: "https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/"
 category: "music"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Songs about Kissing That Are Fun and Flirty ...
@@ -56,16 +56,16 @@ These songs can help you get through your alone time. For now, you're not with t
 
 ## Related Posts
 
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
-- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
-- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
-- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
+- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
+- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
+- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
 - [8 Fun Kissing Games ...](https://love.allwomenstalk.com/fun-kissing-games/)
 - [7 Inspiring Romantic Date Ideas ...](https://allwomenstalk.com/7-inspiring-romantic-date-ideas/)
 

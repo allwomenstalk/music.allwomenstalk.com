@@ -3,7 +3,7 @@ title: "In Celebration of a Pop Icon: Madonna at 60 ..."
 description: "Like a Virgin; She Rules the UK Charts; Rich List; Never Shy; Fashion Choices; More ..."
 url: "https://music.allwomenstalk.com/in-celebration-of-a-pop-icon-madonna-at/"
 category: "music"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # In Celebration of a Pop Icon: Madonna at 60 ...
@@ -68,16 +68,16 @@ Happy Birthday Madonna!
 
 ## Related Posts
 
-- [world most highest paid model](https://fashion.allwomenstalk.com/who-is-the-worlds-highest-paid-model/)
-- [Lepaparazzi News Update: Olivier with Two New Brun...](https://allwomenstalk.com/lepaparazzi-news-update-olivier-with-two-new-brunettes/)
-- [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
-- [Well, I Loved Jennifer Hudson's Jacket ...](https://allwomenstalk.com/well-i-loved-jennifer-hudsons-jacket/)
-- [The Backup Babe](https://allwomenstalk.com/the-backup-babe/)
 - [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
-- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
+- [world most highest paid model](https://fashion.allwomenstalk.com/who-is-the-worlds-highest-paid-model/)
 - [After the Oscars - Ellen Tidbits!](https://allwomenstalk.com/after-the-oscars-ellen-tidbits/)
+- [The Backup Babe](https://allwomenstalk.com/the-backup-babe/)
+- [Lepaparazzi News Update: Olivier with Two New Brun...](https://allwomenstalk.com/lepaparazzi-news-update-olivier-with-two-new-brunettes/)
+- [Well, I Loved Jennifer Hudson's Jacket ...](https://allwomenstalk.com/well-i-loved-jennifer-hudsons-jacket/)
 - [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
 - [Snarky Gossip Friday Roundup Brought to You Today ...](https://allwomenstalk.com/snarky-gossip-friday-roundup-brought-to-you-today-by-cher/)
+- [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
+- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
 - [7 Reasons I Adore Lady Gaga ...](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
 - [The Grammy Awards - the Red Carpet ...](https://allwomenstalk.com/the-grammy-awards-the-red-carpet/)
 

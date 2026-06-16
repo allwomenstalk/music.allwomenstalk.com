@@ -3,7 +3,7 @@ title: "New Christmas Love Songs to Hear This Year ..."
 description: "Celebrate Me Home by Leann Rimes Ft. Gavin DeGraw; Santa Baby by Clare Bowen; Christmas (Baby Please Come Home) by Chris Young; I’ll Be Home for Christmas by Pentatonix; What Are You Doing New Year’s Eve? by Kacey Musgraves; More ..."
 url: "https://music.allwomenstalk.com/new-christmas-love-songs-to-hear-this-year/"
 category: "music"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # New Christmas Love Songs to Hear This Year ...
@@ -90,16 +90,16 @@ These are just a handful of the Christmas songs 🎄 that you should definitely 
 
 ## Related Posts
 
-- [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
-- [summer jam songs](https://music.allwomenstalk.com/coolest-summer-songs-from-your-fave-shows-to-jam-out-to/)
-- [fz_pawpt9mo -site:youtube.com](https://music.allwomenstalk.com/summer-tracks-that-are-essentials-for-your-playlist/)
-- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
-- [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
-- [music for stress relief relaxing music for stress](https://music.allwomenstalk.com/relaxing-songs-to-listen-to-when-the-stressors-of-life-are-overwhelming/)
-- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
-- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
 - [when you've had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [fz_pawpt9mo -site:youtube.com](https://music.allwomenstalk.com/summer-tracks-that-are-essentials-for-your-playlist/)
+- [music for stress relief relaxing music for stress](https://music.allwomenstalk.com/relaxing-songs-to-listen-to-when-the-stressors-of-life-are-overwhelming/)
+- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
+- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
+- [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
+- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
+- [summer jam songs](https://music.allwomenstalk.com/coolest-summer-songs-from-your-fave-shows-to-jam-out-to/)
+- [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
 - [Christmas is Pink This Year ...](https://allwomenstalk.com/christmas-is-pink-this-year/)
 - [Young Love ...](https://allwomenstalk.com/young-love/)
 

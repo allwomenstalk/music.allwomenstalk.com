@@ -3,7 +3,7 @@ title: "11 Amazing Movie Soundtracks from the '90s ..."
 description: "Empire Records; Natural Born Killers; Romeo + Juliet; Mallrats; Armageddon; More ..."
 url: "https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/"
 category: "music"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 11 Amazing Movie Soundtracks from the '90s ...
@@ -102,16 +102,16 @@ The '90s really were kind of magical in retrospect, and there were some damn goo
 
 ## Related Posts
 
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
 - [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
-- [early who songs](https://music.allwomenstalk.com/awesome-early-songs-by-david-bowie/)
-- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
-- [picture of rainfall](https://travel.allwomenstalk.com/pictures-of-rain-that-will-make-you-want-to-sing/)
-- [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
 - [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
-- [romantic music for making love](https://love.allwomenstalk.com/romantic-songs-to-listen-to-during-a-make-out-session/)
 - [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
+- [picture of rainfall](https://travel.allwomenstalk.com/pictures-of-rain-that-will-make-you-want-to-sing/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
+- [romantic music for making love](https://love.allwomenstalk.com/romantic-songs-to-listen-to-during-a-make-out-session/)
+- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
+- [early who songs](https://music.allwomenstalk.com/awesome-early-songs-by-david-bowie/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 

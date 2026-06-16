@@ -3,7 +3,7 @@ title: "Best Musical Collaborations of 2015 ..."
 description: "Bang Bang; Bad Blood; Marvin Gay and Get It on; Stay with Me; Worth It; More ..."
 url: "https://music.allwomenstalk.com/best-musical-collaborations-of/"
 category: "music"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Best Musical Collaborations of 2015 ...
@@ -49,16 +49,16 @@ Okay, now you can recover the brain cells you just lost! This song, paired with 
 
 ## Related Posts
 
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
-- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
-- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
-- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
 - [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
+- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
+- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
 - [Top 8 Musicals of All Time ...](https://movies.allwomenstalk.com/top-musicals-of-all-time/)
 - [The Summer of Musical Reunions ...](https://allwomenstalk.com/the-summer-of-musical-reunions/)
 

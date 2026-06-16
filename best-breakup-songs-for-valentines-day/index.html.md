@@ -3,7 +3,7 @@ title: "15 Best Breakup Songs for Valentine's Day ..."
 description: "I Will Survive-Gloria Gaynor; Before He Cheats-Carrie Underwood; I Will Always Love You-Various; Set Fire to the Rain-Adele; Looking for a New Love-Jodi Watley; More ..."
 url: "https://music.allwomenstalk.com/best-breakup-songs-for-valentines-day/"
 category: "music"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 15 Best Breakup Songs for Valentine's Day ...
@@ -74,16 +74,16 @@ My iTunes collection is very eclectic, as you can see! I really appreciate the p
 
 ## Related Posts
 
-- [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
+- [instant star songs](https://music.allwomenstalk.com/songs-from-instant-star-that-i-still-listen-to/)
 - [dance birthday songs](https://music.allwomenstalk.com/of-the-best-fatherdaughter-songs-to-dance-to/)
-- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
-- [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
-- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
 - [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
 - [songs to play when you're mad](https://music.allwomenstalk.com/songs-for-when-youre-in-a-bad-mood/)
+- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
 - [nickelback love songs](https://music.allwomenstalk.com/love-songs-for-valentines-day/)
 - [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
-- [instant star songs](https://music.allwomenstalk.com/songs-from-instant-star-that-i-still-listen-to/)
+- [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
+- [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
+- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
 - [15 Great Songs about Long Distance Love ...](https://allwomenstalk.com/9-great-songs-about-long-distance-love/)
 - [20 Dysfunctional Love Songs ...](https://allwomenstalk.com/20-dysfunctional-love-songs/)
 
