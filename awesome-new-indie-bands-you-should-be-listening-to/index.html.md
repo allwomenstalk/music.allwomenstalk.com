@@ -3,7 +3,7 @@ title: "11 Awesome New Indie Bands You Should Be Listening to ..."
 description: "Young Rising Sons; Zella Day; False Puppet; Portugal. the Man; Years & Years; More ..."
 url: "https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/"
 category: "music"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 11 Awesome New Indie Bands You Should Be Listening to ...
@@ -58,15 +58,15 @@ Well, there you have it. These are just some of the indie bands I'm currently ob
 
 ## Related Posts
 
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
 - [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
 - [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
-- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
 - [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
-- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
+- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
 - [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
 - [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
 - [10 Great Indie Films You Have to See ...](https://allwomenstalk.com/10-great-indie-films-you-have-to-see/)
 - [10 Great Music Blogs ...](https://allwomenstalk.com/10-great-music-blogs/)

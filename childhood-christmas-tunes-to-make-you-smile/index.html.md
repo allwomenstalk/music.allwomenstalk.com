@@ -3,7 +3,7 @@ title: "7 Childhood Christmas Tunes to Make You Smile ..."
 description: "All I Want for Christmas is My Two Front Teeth; I Want a Hippopotamus for Christmas; I Saw Mommy Kissing Santa Claus; Dominic the Donkey; Please Christmas Don’t Be Late; More ..."
 url: "https://music.allwomenstalk.com/childhood-christmas-tunes-to-make-you-smile/"
 category: "music"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Childhood Christmas Tunes to Make You Smile ...
@@ -42,16 +42,16 @@ Don’t be a scrooge! Allow your children to help you get into the holiday mood 
 
 ## Related Posts
 
-- [best live vocals](https://music.allwomenstalk.com/of-miley-cyrus-best-vocal-performances-thatll-amaze-you/)
 - [music websites](https://music.allwomenstalk.com/fantastic-music-websites-you-have-to-bookmark/)
-- [biggest music comebacks](https://music.allwomenstalk.com/artists-that-made-recent-musical-comebacks/)
-- [dimash concert 2024](https://music.allwomenstalk.com/artists-with-the-best-live-performances/)
-- [list of one direction songs](https://music.allwomenstalk.com/one-direction-songs-you-need-to-listen-to-this-week/)
-- [silent night boys2men](https://music.allwomenstalk.com/classic-songs-for-your-holiday-playlist/)
-- [catchy theme song](https://movies.allwomenstalk.com/tv-shows-with-catchy-theme-songs-thatll-stay-in-your-head/)
 - [hot boy bands](https://music.allwomenstalk.com/amazing-boy-bands-were-head-over-heels-in-love-with/)
-- [simple disney songs](https://music.allwomenstalk.com/most-inspirational-disney-songs-to-cheer-you-up-in-no-time/)
+- [dimash concert 2024](https://music.allwomenstalk.com/artists-with-the-best-live-performances/)
 - [best singers youtube](https://music.allwomenstalk.com/amazing-singers-on-youtube-that-you-might-not-know-about/)
+- [simple disney songs](https://music.allwomenstalk.com/most-inspirational-disney-songs-to-cheer-you-up-in-no-time/)
+- [best live vocals](https://music.allwomenstalk.com/of-miley-cyrus-best-vocal-performances-thatll-amaze-you/)
+- [silent night boys2men](https://music.allwomenstalk.com/classic-songs-for-your-holiday-playlist/)
+- [list of one direction songs](https://music.allwomenstalk.com/one-direction-songs-you-need-to-listen-to-this-week/)
+- [catchy theme song](https://movies.allwomenstalk.com/tv-shows-with-catchy-theme-songs-thatll-stay-in-your-head/)
+- [biggest music comebacks](https://music.allwomenstalk.com/artists-that-made-recent-musical-comebacks/)
 - [7 Ways to Make Your Little One Smile ...](https://parenting.allwomenstalk.com/7-ways-to-make-your-little-one-smile/)
 - [8 Childhood Products We Love ...](https://parenting.allwomenstalk.com/8-childhood-products-we-love/)
 

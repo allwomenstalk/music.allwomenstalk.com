@@ -3,7 +3,7 @@ title: "7 Awkward Songs You Should Never Sing in Public ..."
 description: "I Feel Pretty from West Side Story; She Don't Use Jelly by the Flaming Lips; What Does the Fox Say by Ylvis; Barbie Girl by Aqua; I'm in Love with a Stripper by T Pain; More ..."
 url: "https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/"
 category: "music"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Awkward Songs You Should Never Sing in Public ...
@@ -50,15 +50,15 @@ While there's a vast volume of songs that should remain inside the four walls of
 ## Related Posts
 
 - [diy pda](https://love.allwomenstalk.com/worst-places-for-pda/)
-- [couples making out in public](https://love.allwomenstalk.com/things-couples-shouldnt-do-in-public/)
 - [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
-- [things you should never say to your teenage daught...](https://parenting.allwomenstalk.com/things-you-shouldnt-say-to-your-daughter/)
-- [unhygienic things](https://health.allwomenstalk.com/unhygienic-things-you-do-every-day/)
-- [things considered cheating](https://love.allwomenstalk.com/tiny-things-that-count-as-cheating/)
-- [meanest things to say to a guy](https://love.allwomenstalk.com/of-the-worst-things-your-guy-can-say/)
-- [7 Traits Cheaters Possess That You Should Watch ou...](https://love.allwomenstalk.com/traits-cheaters-possess-that-you-should-watch-out-for/)
-- [what happens if you put nail polish on your skin](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face/)
+- [couples making out in public](https://love.allwomenstalk.com/things-couples-shouldnt-do-in-public/)
 - [little things to get your boyfriend](https://love.allwomenstalk.com/frustrating-little-things-you-do-that-your-boyfriend-hates/)
+- [meanest things to say to a guy](https://love.allwomenstalk.com/of-the-worst-things-your-guy-can-say/)
+- [things you should never say to your teenage daught...](https://parenting.allwomenstalk.com/things-you-shouldnt-say-to-your-daughter/)
+- [7 Traits Cheaters Possess That You Should Watch ou...](https://love.allwomenstalk.com/traits-cheaters-possess-that-you-should-watch-out-for/)
+- [things considered cheating](https://love.allwomenstalk.com/tiny-things-that-count-as-cheating/)
+- [unhygienic things](https://health.allwomenstalk.com/unhygienic-things-you-do-every-day/)
+- [what happens if you put nail polish on your skin](https://skincare.allwomenstalk.com/things-you-should-never-put-on-your-face/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)
 
