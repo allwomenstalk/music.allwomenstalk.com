@@ -3,7 +3,7 @@ title: "7 Empowering Songs from India Arie ..."
 description: "Beautiful Flower; The Heart of the Matter; I Am Not My Hair; A Beautiful Day; I Am Ready for Love; More ..."
 url: "https://music.allwomenstalk.com/empowering-songs-from-india-arie/"
 category: "music"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Empowering Songs from India Arie ...
@@ -42,16 +42,16 @@ Do you listen to India Arie? What do you think of her songs?
 
 ## Related Posts
 
-- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
+- [songs about positive body image](https://music.allwomenstalk.com/body-positive-songs-that-will-make-you-feel-gorgeous/)
+- [yiruma family](https://music.allwomenstalk.com/piano-ballads-from-yiruma-thatll-put-your-mind-at-ease/)
+- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
+- [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
 - [no change of heart a change in me](https://music.allwomenstalk.com/broadway-songs-that-are-relatable/)
+- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
+- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
+- [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
 - [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
 - [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
-- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
-- [yiruma family](https://music.allwomenstalk.com/piano-ballads-from-yiruma-thatll-put-your-mind-at-ease/)
-- [songs about positive body image](https://music.allwomenstalk.com/body-positive-songs-that-will-make-you-feel-gorgeous/)
-- [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
-- [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
-- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 

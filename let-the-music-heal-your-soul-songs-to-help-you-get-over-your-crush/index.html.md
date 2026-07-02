@@ -3,7 +3,7 @@ title: "Let the Music Heal Your Soul - 9 Songs to Help You Get over Your Crush .
 description: "The King of Wishful Thinking by New Found Glory; Straightjacket Feeling by the All American Rejects; I Can do Better by Avril Lavigne; Good Girl by Carrie Underwood; Love Drunk by Boys like Girls; More ..."
 url: "https://music.allwomenstalk.com/let-the-music-heal-your-soul-songs-to-help-you-get-over-your-crush/"
 category: "music"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Let the Music Heal Your Soul \- 9 Songs to Help You Get over Your Crush ...
@@ -50,16 +50,16 @@ You're stronger than you give yourself credit for. Even though you're upset abou
 
 ## Related Posts
 
-- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
-- [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
-- [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
-- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
 - [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
+- [hottest singers right now](https://music.allwomenstalk.com/the-hottest-new-singers-you-need-to-hear-before-they-hit-it-big/)
 - [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
-- [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
+- [curvy hairy teen](https://music.allwomenstalk.com/this-ones-for-all-curvy-ladies-songs-about-curvy-being-sexy/)
 - [اغنيه بطمن عليك](https://music.allwomenstalk.com/songs-thatll-remind-you-itll-all-be-okay/)
-- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
 - [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
+- [songs about not backing down](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-some-serious-motivation/)
+- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
+- [best summer beach songs](https://music.allwomenstalk.com/the-best-songs-about-summer-to-blast-at-the-beach/)
+- [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
 - [9 Ways to Get over Your Ex in a Week ...](https://love.allwomenstalk.com/ways-to-get-over-your-ex-in-a-week/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 

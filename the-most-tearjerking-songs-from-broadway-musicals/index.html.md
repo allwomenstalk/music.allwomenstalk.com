@@ -3,7 +3,7 @@ title: "the Most Tearjerking Songs from Broadway Musicals ..."
 description: "Somewhere; Last Night of the World; Tell Me It’s Not True; Send in the Clowns; As Long as He Needs Me; More ..."
 url: "https://music.allwomenstalk.com/the-most-tearjerking-songs-from-broadway-musicals/"
 category: "music"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # the Most Tearjerking Songs from Broadway Musicals ...
@@ -116,16 +116,16 @@ So, please tell me – your favorites?
 
 ## Related Posts
 
-- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
-- [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
-- [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
-- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
-- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
 - [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
 - [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
+- [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
+- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
+- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
 - [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
-- [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
 - [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
+- [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
+- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
+- [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
 
