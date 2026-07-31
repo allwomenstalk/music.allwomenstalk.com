@@ -42,15 +42,15 @@ That sums it up for my 7 amazing workout songs that you need to add to your gym 
 
 ## Related Posts
 
+- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
+- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
+- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
 - [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
 - [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
 - [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
-- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
-- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
-- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
 - [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
+- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
 - [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 - [7 Songs for Working out ...](https://allwomenstalk.com/7-songs-for-working-out/)

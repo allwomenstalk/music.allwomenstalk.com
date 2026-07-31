@@ -42,16 +42,16 @@ What are the albums you’re looking forward to this fall and winter? Let me kno
 
 ## Related Posts
 
+- [the9 songs](https://music.allwomenstalk.com/the-best-songs-to-power-through-your-chilly-winter-workouts/)
+- [10 Podcasts to Listen to during Your Run ...](https://running.allwomenstalk.com/podcasts-to-listen-to-during-your-run-today/)
+- [7 Vinyls That You Should Add to Your Record Collec...](https://music.allwomenstalk.com/vinyls-that-you-should-add-to-your-record-collection/)
+- [25 Artists That Are Going to Hit It Big in 2017 .....](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in-2017/)
 - [legendary imagine dragons](https://running.allwomenstalk.com/these-are-the-most-legendary-songs-for-your-running-playlist/)
 - [Calming Music Tracks to Listen to when You Need So...](https://music.allwomenstalk.com/music-tracks-for-those-who-want-to-feel-calm/)
 - [These Are the Most Stunning Music Videos of 2015 ....](https://music.allwomenstalk.com/these-are-the-most-stunning-music-videos-of/)
-- [25 Artists That Are Going to Hit It Big in 2017 .....](https://music.allwomenstalk.com/artists-that-are-going-to-hit-it-big-in-2017/)
-- [the9 songs](https://music.allwomenstalk.com/the-best-songs-to-power-through-your-chilly-winter-workouts/)
-- [10 Podcasts to Listen to during Your Run ...](https://running.allwomenstalk.com/podcasts-to-listen-to-during-your-run-today/)
 - [The Silliest Misheard Song Lyrics of 2015 ...](https://lifestyle.allwomenstalk.com/the-silliest-misheard-song-lyrics-of/)
 - [The Ultimate Running Playlist You Should Listen to...](https://running.allwomenstalk.com/the-ultimate-running-playlist-you-should-listen-to-right-now/)
 - [The Best Movie Musicals for Girls Who Just Gotta S...](https://bilbr.com/the-best-movie-musicals-for-girls-who-just-gotta-sing/)
-- [7 Vinyls That You Should Add to Your Record Collec...](https://music.allwomenstalk.com/vinyls-that-you-should-add-to-your-record-collection/)
 - [5 Magazine Covers to End 2009 and/or Start 2010 .....](https://allwomenstalk.com/magazine-covers-to-end-andor-start/)
 - [8 of My Favorite Music Albums from 2010 ...](https://allwomenstalk.com/of-my-favorite-music-albums-from/)
 

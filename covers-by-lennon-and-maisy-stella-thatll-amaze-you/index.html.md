@@ -42,16 +42,16 @@ There you have it! There’s so many incredible videos of these two girls singin
 
 ## Related Posts
 
-- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
-- [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
-- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
+- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
 - [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
 - [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
-- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
 - [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
+- [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
+- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
+- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

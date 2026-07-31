@@ -42,16 +42,16 @@ I am sure that Bastille will blow up the radio with even more of their amazing m
 
 ## Related Posts
 
-- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
-- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
-- [opening act fall out boy](https://music.allwomenstalk.com/reasons-to-be-excited-for-fall-out-boys-upcoming-tour/)
 - [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
-- [riche le stylo eye always pink](https://movies.allwomenstalk.com/compelling-reasons-to-jump-on-the-wahlburgers-bandwagon/)
+- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
+- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
 - [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
+- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
+- [is zendaya nice](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
+- [opening act fall out boy](https://music.allwomenstalk.com/reasons-to-be-excited-for-fall-out-boys-upcoming-tour/)
 - [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
 - [love a girl right little mix](https://music.allwomenstalk.com/awesome-reasons-to-love-little-mix/)
-- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
-- [is zendaya nice](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
+- [riche le stylo eye always pink](https://movies.allwomenstalk.com/compelling-reasons-to-jump-on-the-wahlburgers-bandwagon/)
 - [10 Brilliant Reasons to Visit Brazil ...](https://travel.allwomenstalk.com/brilliant-reasons-to-visit-brazil/)
 - [10 Reasons Why I Love Barcelona ...](https://allwomenstalk.com/10-reasons-why-i-love-barcelona/)
 

@@ -43,15 +43,15 @@ Well, there you have it. These are just seven out of many awesome acoustic perfo
 ## Related Posts
 
 - [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
 - [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
 - [8 Cool Song Covers ...](https://allwomenstalk.com/cool-song-covers/)
 - [7 Best Boy Bands to Jam with ...](https://celebs.allwomenstalk.com/best-boy-bands-to-jam-with/)
 

@@ -56,16 +56,16 @@ If it weren’t for these artists, the music industry would not be the same toda
 
 ## Related Posts
 
-- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
-- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
-- [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
+- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
-- [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
 - [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
+- [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
+- [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
+- [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 - [7 Talented Alternative Artists Worth Checking out ...](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
 

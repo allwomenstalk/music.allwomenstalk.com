@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of MANY ridiculously amazing p
 
 ## Related Posts
 
-- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
-- [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
-- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
-- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
-- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
-- [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
 - [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
-- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
-- [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
 - [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
+- [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
+- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
+- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
+- [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
+- [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
+- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
+- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
+- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Talented Alternative Artists Worth Checking out ...](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
 

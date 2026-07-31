@@ -144,16 +144,16 @@ These 21 amazing rock songs of the '90s make for a fun playlist that will take y
 
 ## Related Posts
 
-- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
-- [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
-- [let's go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
-- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
+- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
+- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
+- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
 - [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
 - [90's duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
-- [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
-- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
-- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
+- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
+- [let's go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
+- [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
+- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
+- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
 - [9 Fascinatingly Amazing Songs to Blast While in th...](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 

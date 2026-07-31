@@ -58,16 +58,16 @@ So girls and guys, while this list might not have been what you are expecting, i
 
 ## Related Posts
 
-- [dancetunes](https://music.allwomenstalk.com/of-my-all-time-favorite-dance-tunes/)
-- [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
-- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
-- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
 - [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
-- [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
-- [inspirational song for students](https://music.allwomenstalk.com/amazing-music-videos-that-are-such-an-inspiration-for-all-of-us/)
-- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
 - [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
 - [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
+- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
+- [dancetunes](https://music.allwomenstalk.com/of-my-all-time-favorite-dance-tunes/)
+- [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
+- [inspirational song for students](https://music.allwomenstalk.com/amazing-music-videos-that-are-such-an-inspiration-for-all-of-us/)
+- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
+- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
+- [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
 

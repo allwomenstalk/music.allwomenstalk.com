@@ -78,15 +78,15 @@ Can you think of a song you are planning to include on your list of **songs for 
 
 ## Related Posts
 
+- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
+- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
+- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
 - [songs about friend breakups](https://music.allwomenstalk.com/amazing-breakup-songs-that-know-just-how-you-feel/)
 - [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
-- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
-- [believe in yourself songs](https://music.allwomenstalk.com/inspirational-rap-songs-to-listen-to-when-youre-feeling-down/)
-- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
 - [www hard core com](https://music.allwomenstalk.com/amazing-hardcore-rock-songs-to-get-you-motivated/)
-- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
-- [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
 - [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
+- [believe in yourself songs](https://music.allwomenstalk.com/inspirational-rap-songs-to-listen-to-when-youre-feeling-down/)
+- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
 - [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [9 Ways to Enjoy Your Summer Nights ...](https://lifestyle.allwomenstalk.com/ways-to-enjoy-your-summer-nights-2/)
 - [15 Songs for a Road Trip ...](https://allwomenstalk.com/15-songs-for-a-road-trip/)

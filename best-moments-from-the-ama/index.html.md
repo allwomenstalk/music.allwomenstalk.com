@@ -32,16 +32,16 @@ Their performance of "Everyone Hurts" was relevant, heartfelt and a bittersweet 
 
 ## Related Posts
 
+- [36 Photos of the "GLEE" Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
+- [Locks and Looks - Dive into the Glamour of Golden ...](https://allwomenstalk.com/golden-globes-best-hair/)
 - [bridesmaids anne hathaway](https://wedding.allwomenstalk.com/5-colorful-bridesmaid-inspirations-from-the-oscars/)
+- [10 Best Red Carpet Looks from the SAG Awards ...](https://celebs.allwomenstalk.com/best-red-carpet-looks-from-the-sag-awards/)
+- [Pick the Best and Worst Dressed at the "Clash of t...](https://celebs.allwomenstalk.com/clash-of-the-titans-premiere/)
+- [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
+- [best host award](https://movies.allwomenstalk.com/7-worst-awards-show-hosts/)
+- [5 Bridal Looks Right from the Golden Globes ...](https://wedding.allwomenstalk.com/5-bridal-looks-right-from-the-golden-globes/)
 - [robert pattinson quentin tarantino](https://twilight.allwomenstalk.com/5-coolest-robert-pattinson-red-carpet-looks/)
 - [45th grammys](https://celebs.allwomenstalk.com/45th-annual-academy-of-country-music-awards/)
-- [Locks and Looks - Dive into the Glamour of Golden ...](https://allwomenstalk.com/golden-globes-best-hair/)
-- [5 Bridal Looks Right from the Golden Globes ...](https://wedding.allwomenstalk.com/5-bridal-looks-right-from-the-golden-globes/)
-- [Pick the Best and Worst Dressed at the "Clash of t...](https://celebs.allwomenstalk.com/clash-of-the-titans-premiere/)
-- [36 Photos of the "GLEE" Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
-- [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
-- [10 Best Red Carpet Looks from the SAG Awards ...](https://celebs.allwomenstalk.com/best-red-carpet-looks-from-the-sag-awards/)
-- [best host award](https://movies.allwomenstalk.com/7-worst-awards-show-hosts/)
 - [7 Celebs to Watch for in 2011 ...](https://allwomenstalk.com/celebs-to-watch-for-in/)
 - [10 Summer Concerts You Won't Want to Miss ...](https://movies.allwomenstalk.com/summer-concerts-you-wont-want-to-miss/)
 

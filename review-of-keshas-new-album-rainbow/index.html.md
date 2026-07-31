@@ -19,16 +19,16 @@ For me what matters most is if an album as a whole made me feel something or bet
 
 ## Related Posts
 
-- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
-- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
 - [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
 - [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
-- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
 - [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
+- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
+- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
+- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
 - [REVIEW: Loreal Sublime Glow ...](https://allwomenstalk.com/review-loreal-sublime-glow/)
 - [REVIEW: John Frieda . Starlit Waves ...](https://allwomenstalk.com/review-john-frieda-starlit-waves/)
 

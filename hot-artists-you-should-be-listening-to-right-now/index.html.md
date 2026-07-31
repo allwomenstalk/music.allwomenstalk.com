@@ -56,16 +56,16 @@ Julia Michaels, being known for her amazing song writing skills for artists such
 
 ## Related Posts
 
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
 - [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
-- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
-- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
-- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
 - [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
+- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
 - [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
+- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
+- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

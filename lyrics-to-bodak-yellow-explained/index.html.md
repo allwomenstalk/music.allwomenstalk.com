@@ -91,16 +91,16 @@ Catch you later…
 
 ## Related Posts
 
+- [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
 - [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
-- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [is christina aguilera single](https://music.allwomenstalk.com/the-best-christina-aguilera-singles/)
 - [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
 - [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
-- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
+- [is christina aguilera single](https://music.allwomenstalk.com/the-best-christina-aguilera-singles/)
+- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
 - [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
+- [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
 - [hip hop diss songs](https://music.allwomenstalk.com/top-diss-tracks-in-hip-hop-history/)
-- [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
 - [From the Blog Bag ...](https://allwomenstalk.com/from-the-blog-bag/)
 - [Tattoo You ...](https://allwomenstalk.com/tattoo-you/)
 

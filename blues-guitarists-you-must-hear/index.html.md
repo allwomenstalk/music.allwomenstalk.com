@@ -70,16 +70,16 @@ When you hear these guitar giants they will take you from unbridled joy to deep 
 
 ## Related Posts
 
-- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
 - [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
 - [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
+- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
 - [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [best selling albums of the 70s](https://music.allwomenstalk.com/best-selling-albums-of-all-time-you-need-on-your-mp3-player/)
 - [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
-- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
-- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 - [7 up and Coming Singers You Should Know about ...](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
 

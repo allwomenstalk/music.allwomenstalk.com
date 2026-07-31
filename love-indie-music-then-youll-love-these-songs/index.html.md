@@ -44,16 +44,16 @@ Sources: [pitchfork.com](https://pitchfork.com/news/58554-passion-pit-and-madeon
 
 ## Related Posts
 
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
 - [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
 - [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
 - [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
-- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Best Celebs with Indie Style ...](https://allwomenstalk.com/7-best-celebs-with-indie-style/)
 

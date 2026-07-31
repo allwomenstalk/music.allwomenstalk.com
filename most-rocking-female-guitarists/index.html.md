@@ -56,16 +56,16 @@ The staple of any great rock band is the guitarist and these beautiful ladies kn
 
 ## Related Posts
 
-- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
-- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
 - [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
+- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
 - [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
 - [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
+- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
 - [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
-- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
-- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
-- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
 - [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
+- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
 - [7 Cars for Women That Rock ...](https://allwomenstalk.com/7-cars-for-women-that-rock/)
 - [The 7 Most Inspiring Women Celebrities ...](https://allwomenstalk.com/the-7-most-inspiring-women-celebrities/)
 

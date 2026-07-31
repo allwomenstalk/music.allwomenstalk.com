@@ -68,16 +68,16 @@ Happy Birthday Madonna!
 
 ## Related Posts
 
-- [world most highest paid model](https://fashion.allwomenstalk.com/who-is-the-worlds-highest-paid-model/)
-- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
-- [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
-- [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
-- [The Backup Babe](https://allwomenstalk.com/the-backup-babe/)
-- [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
-- [After the Oscars - Ellen Tidbits!](https://allwomenstalk.com/after-the-oscars-ellen-tidbits/)
 - [Well, I Loved Jennifer Hudson's Jacket ...](https://allwomenstalk.com/well-i-loved-jennifer-hudsons-jacket/)
-- [Snarky Gossip Friday Roundup Brought to You Today ...](https://allwomenstalk.com/snarky-gossip-friday-roundup-brought-to-you-today-by-cher/)
+- [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
 - [Lepaparazzi News Update: Olivier with Two New Brun...](https://allwomenstalk.com/lepaparazzi-news-update-olivier-with-two-new-brunettes/)
+- [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
+- [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
+- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
+- [world most highest paid model](https://fashion.allwomenstalk.com/who-is-the-worlds-highest-paid-model/)
+- [The Backup Babe](https://allwomenstalk.com/the-backup-babe/)
+- [Snarky Gossip Friday Roundup Brought to You Today ...](https://allwomenstalk.com/snarky-gossip-friday-roundup-brought-to-you-today-by-cher/)
+- [After the Oscars - Ellen Tidbits!](https://allwomenstalk.com/after-the-oscars-ellen-tidbits/)
 - [7 Reasons I Adore Lady Gaga ...](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
 - [The Grammy Awards - the Red Carpet ...](https://allwomenstalk.com/the-grammy-awards-the-red-carpet/)
 

@@ -49,16 +49,16 @@ No longer is country only reserved for summertime. The beauty about country musi
 
 ## Related Posts
 
-- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
 - [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
-- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
-- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
+- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
 - [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
+- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
 - [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
-- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
 - [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
 - [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
-- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
+- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
+- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
+- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
 - [7 Pop Albums You Should Own ...](https://allwomenstalk.com/7-pop-albums-you-should-own/)
 - [7 Best Songs for Relaxing ...](https://allwomenstalk.com/7-best-songs-for-relaxing/)
 

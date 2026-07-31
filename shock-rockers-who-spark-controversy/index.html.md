@@ -56,16 +56,16 @@ Each of these shock rockers did something out of the ordinary at the time that g
 
 ## Related Posts
 
-- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
-- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
-- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
-- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
+- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
+- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
+- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
+- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
 - [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
 - [Backstage Buzz at the SAG Awards ...](https://bilbr.com/backstage-buzz-at-the-sag-awards/)
 - [Fall out Boy Got Streamed Live ...](https://allwomenstalk.com/fall-out-boy-got-streamed-live/)
 

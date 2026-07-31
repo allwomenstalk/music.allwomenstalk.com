@@ -56,16 +56,16 @@ Oh, boy bands - swoon! Did you listen to any of these boy bands? What were your 
 
 ## Related Posts
 
-- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
-- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
-- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
 - [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
 - [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
+- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
+- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
 - [Top 10 Boy Bands of All Time ...](https://allwomenstalk.com/top-10-boy-bands-of-all-time/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 

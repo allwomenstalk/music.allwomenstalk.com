@@ -56,16 +56,16 @@ Indie bands can be a great source of new music and who knows, you might even fin
 
 ## Related Posts
 
-- [let's go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
-- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
-- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
 - [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
 - [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
-- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
+- [let's go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
 - [best background music for interviews](https://music.allwomenstalk.com/songs-to-listen-to-on-your-way-to-an-interview-to-boost-your-confidence/)
-- [songs about fall country](https://music.allwomenstalk.com/country-songs-for-fall-that-need-to-be-on-your-playlist/)
-- [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
 - [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
+- [songs about fall country](https://music.allwomenstalk.com/country-songs-for-fall-that-need-to-be-on-your-playlist/)
+- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
+- [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
+- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
+- [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

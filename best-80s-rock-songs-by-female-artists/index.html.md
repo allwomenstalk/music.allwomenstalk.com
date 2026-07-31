@@ -46,16 +46,16 @@ Yes, Joan gets two entries because let’s face it, she rules.
 
 ## Related Posts
 
-- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
-- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
 - [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
 - [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
+- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
+- [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
+- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
 - [8 Amazing Serge Gainsbourg Songs ...](https://allwomenstalk.com/8-amazing-serge-gainsbourg-songs/)
 - [7 1980s Girl Rockers I Love ...](https://allwomenstalk.com/7-1980s-girl-rockers-i-love/)
 

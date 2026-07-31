@@ -56,16 +56,16 @@ I hope you guys check out these amazing alternative rock bands and enjoy their m
 
 ## Related Posts
 
-- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
-- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
+- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
 - [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
-- [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
-- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
-- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
+- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
 - [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
 - [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
-- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
+- [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
+- [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
+- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
 - [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
+- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

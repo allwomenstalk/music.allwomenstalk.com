@@ -51,15 +51,15 @@ Music videos do this wonderful thing of adding a new dimension to your favourite
 ## Related Posts
 
 - [music festivals 2014](https://music.allwomenstalk.com/music-festivals-for-for-your-hit-list/)
-- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
-- [dance birthday songs](https://music.allwomenstalk.com/of-the-best-fatherdaughter-songs-to-dance-to/)
-- [patrick stump taylor swift](https://celebs.allwomenstalk.com/hilarious-videos-of-taylor-swift-dancing/)
-- [childhood songs 2000 disney](https://music.allwomenstalk.com/amazing-disney-songs-since-that-youve-got-to-love/)
-- [black phillip song](https://music.allwomenstalk.com/songs-from-phillip-phillips-that-i-always-have-on-repeat/)
-- [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
 - [band neighbourhood](https://music.allwomenstalk.com/epic-performances-by-the-neighbourhood/)
+- [patrick stump taylor swift](https://celebs.allwomenstalk.com/hilarious-videos-of-taylor-swift-dancing/)
 - [old valentine songs](https://music.allwomenstalk.com/best-breakup-songs-for-valentines-day/)
+- [different type of music](https://music.allwomenstalk.com/types-of-music-to-suit-every-mood/)
+- [black phillip song](https://music.allwomenstalk.com/songs-from-phillip-phillips-that-i-always-have-on-repeat/)
+- [childhood songs 2000 disney](https://music.allwomenstalk.com/amazing-disney-songs-since-that-youve-got-to-love/)
 - [singing sensations](https://music.allwomenstalk.com/youtube-singing-sensations-who-deserve-more-praise/)
+- [dance birthday songs](https://music.allwomenstalk.com/of-the-best-fatherdaughter-songs-to-dance-to/)
+- [short song titles](https://music.allwomenstalk.com/inspiring-song-titles-that-will-lift-your-spirit/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 

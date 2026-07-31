@@ -54,16 +54,16 @@ That sums up my list for successful artists that came from American Idol. Don’
 
 ## Related Posts
 
-- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
-- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
-- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
-- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
 - [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
+- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
+- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
+- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
+- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 

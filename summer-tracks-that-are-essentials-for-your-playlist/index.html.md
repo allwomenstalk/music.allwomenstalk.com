@@ -62,16 +62,16 @@ Which are your **favorite summer songs**? Share with me!
 
 ## Related Posts
 
-- [when you've had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
-- [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
-- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
-- [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
-- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
-- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
+- [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
+- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
+- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
+- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
+- [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
+- [when you've had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
 - [8 Top Work out Songs for Spring ...](https://health.allwomenstalk.com/top-work-out-songs-for-spring/)
 - [10 Songs for Fall 2012 That Should Be on Your Play...](https://lifestyle.allwomenstalk.com/songs-for-fall-that-should-be-on-your-playlist/)
 

@@ -46,16 +46,16 @@ I know my summer playlist is a bit eclectic, but what can I say, that’s just w
 
 ## Related Posts
 
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
 - [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
 - [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [9 Ways to Enjoy Your Summer Nights ...](https://lifestyle.allwomenstalk.com/ways-to-enjoy-your-summer-nights-2/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 

@@ -42,16 +42,16 @@ That sums up my list! It isn't all of Cher's acoustic performances (there are ma
 
 ## Related Posts
 
-- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
-- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
-- [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
-- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [switchfoot controversy](https://music.allwomenstalk.com/controversial-songs-that-are-worth-listening-to/)
-- [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
-- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
 - [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
+- [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
+- [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
+- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
+- [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
 - [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
+- [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
+- [switchfoot controversy](https://music.allwomenstalk.com/controversial-songs-that-are-worth-listening-to/)
+- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Amazing Adele's Love Songs ...](https://celebs.allwomenstalk.com/amazing-adeles-love-songs/)
 

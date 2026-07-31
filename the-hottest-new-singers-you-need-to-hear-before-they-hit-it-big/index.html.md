@@ -42,16 +42,16 @@ Can you think of any other awesomely talented up-and-coming singers? Share them 
 
 ## Related Posts
 
-- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
-- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
-- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
-- [اغنيه بطمن عليك](https://music.allwomenstalk.com/songs-thatll-remind-you-itll-all-be-okay/)
+- [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
 - [list of uk festivals](https://music.allwomenstalk.com/the-ultimate-list-of-music-festivals/)
+- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
 - [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 - [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
-- [songs to post your boyfriend on instagram](https://music.allwomenstalk.com/dont-have-a-song-with-your-bf-yet-listen-to-these/)
 - [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
+- [اغنيه بطمن عليك](https://music.allwomenstalk.com/songs-thatll-remind-you-itll-all-be-okay/)
 - [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
+- [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
+- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
 - [5 Hottest Celebrity News ...](https://allwomenstalk.com/5-hottest-celebrity-news/)
 - [6 Hottest Celebrity Buzz ...](https://allwomenstalk.com/6-hottest-celebrity-buzz/)
 

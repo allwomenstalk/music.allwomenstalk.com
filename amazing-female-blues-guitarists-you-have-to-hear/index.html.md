@@ -68,15 +68,15 @@ While other music genres can stir your emotions, the blues are designed specific
 
 ## Related Posts
 
-- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
-- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
-- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
-- [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
-- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
 - [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
+- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
+- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
 - [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
+- [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
 - [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
+- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
 - [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)

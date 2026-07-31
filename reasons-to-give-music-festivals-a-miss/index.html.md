@@ -42,16 +42,16 @@ These are some of the reasons I will not be undergoing the agonizing wait for fe
 
 ## Related Posts
 
-- [is it wrong to cheat back](https://love.allwomenstalk.com/reasons-why-you-shouldnt-take-back-a-cheater/)
-- [reasons to change last name](https://love.allwomenstalk.com/reasons-for-and-against-changing-your-name-after-marriage/)
-- [never start smoking](https://health.allwomenstalk.com/reasons-why-you-should-never-start-smoking/)
-- [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
 - [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
-- [health reasons to put down phone](https://inspiration.allwomenstalk.com/reasons-to-put-your-phone-down/)
-- [why marriage counseling fails](https://love.allwomenstalk.com/main-reasons-why-couples-therapy-fails/)
-- [he didn't call me back](https://love.allwomenstalk.com/reasons-he-hasnt-called-yet/)
 - [definition of friendship](https://lifestyle.allwomenstalk.com/reasons-you-need-friends-more-than-a-partner/)
+- [is it wrong to cheat back](https://love.allwomenstalk.com/reasons-why-you-shouldnt-take-back-a-cheater/)
+- [why marriage counseling fails](https://love.allwomenstalk.com/main-reasons-why-couples-therapy-fails/)
 - [26 and still single](https://love.allwomenstalk.com/reasons-why-you-are-still-single/)
+- [reasons to change last name](https://love.allwomenstalk.com/reasons-for-and-against-changing-your-name-after-marriage/)
+- [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
+- [health reasons to put down phone](https://inspiration.allwomenstalk.com/reasons-to-put-your-phone-down/)
+- [he didn't call me back](https://love.allwomenstalk.com/reasons-he-hasnt-called-yet/)
+- [never start smoking](https://health.allwomenstalk.com/reasons-why-you-should-never-start-smoking/)
 - [7 Reasons to Stay out of the Sun ...](https://skincare.allwomenstalk.com/reasons-to-stay-out-of-the-sun/)
 - [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
 

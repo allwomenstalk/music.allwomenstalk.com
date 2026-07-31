@@ -70,16 +70,16 @@ These are some of my favourite albums of all time which have topped the album ch
 
 ## Related Posts
 
-- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
-- [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
-- [paris color riche le smoky bottomless](https://music.allwomenstalk.com/of-pnks-music-videos-we-cant-get-enough-of/)
-- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
-- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
-- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
 - [best cover albums of all time](https://music.allwomenstalk.com/album-covers-designed-by-famous-artists/)
-- [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
-- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
 - [seducing english songs](https://music.allwomenstalk.com/upbeat-songs-thatll-get-you-in-the-flirting-mood/)
+- [thrift shop pentatonix](https://music.allwomenstalk.com/pentatonix-covers-i-could-listen-to-all-day/)
+- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [paris color riche le smoky bottomless](https://music.allwomenstalk.com/of-pnks-music-videos-we-cant-get-enough-of/)
+- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
+- [rap music albums](https://music.allwomenstalk.com/most-influential-rap-albums-released-in-the-00s/)
+- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
+- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
+- [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
 - [7 Great CDs for Children ...](https://allwomenstalk.com/7-great-cds-for-children/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

@@ -50,16 +50,16 @@ What’s your favorite beach song? Which of these do you want to add to your lis
 
 ## Related Posts
 
-- [new things to learn when bored](https://teen.allwomenstalk.com/stave-off-summer-boredom-by-learning-these-new-skills/)
-- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
-- [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
-- [things to do with your bestie in summer](https://lifestyle.allwomenstalk.com/fun-summer-adventures-to-do-with-your-bestie/)
-- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
-- [summer goals list](https://lifestyle.allwomenstalk.com/heres-the-ultimate-squad-goals-summer-bucket-list/)
 - [sarah scribbles period](https://funny.allwomenstalk.com/comics-that-sum-up-my-life-this-summer/)
-- [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
+- [new things to learn when bored](https://teen.allwomenstalk.com/stave-off-summer-boredom-by-learning-these-new-skills/)
 - [chubby girls drawings](https://beauty.allwomenstalk.com/girls-with-chubby-thighs-will-appreciate-these-tips/)
+- [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
+- [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
 - [movies under stars](https://movies.allwomenstalk.com/the-best-places-to-watch-a-movie-under-the-stars-this-summer/)
+- [things to do with your bestie in summer](https://lifestyle.allwomenstalk.com/fun-summer-adventures-to-do-with-your-bestie/)
+- [summer goals list](https://lifestyle.allwomenstalk.com/heres-the-ultimate-squad-goals-summer-bucket-list/)
+- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
+- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
 - [Brilliant Boardwalk Activities for Girls Who Just ...](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
 - [Super Fun Seaside Activities for Girls Who Don't S...](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
 

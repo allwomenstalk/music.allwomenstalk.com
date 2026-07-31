@@ -104,16 +104,16 @@ Well, there you have it. These are just 15 must-hear album releases of the fall.
 
 ## Related Posts
 
-- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
-- [good run songs](https://running.allwomenstalk.com/best-songs-for-your-running-playlist/)
-- [taylor swift 1789](https://music.allwomenstalk.com/heres-taylor-swifts-album-in-an-epic-minute-mash-up/)
 - [This Music Video Features 100 Real-life Couples & ...](https://music.allwomenstalk.com/this-music-video-features-real-life-couples-will-make-your-heart-melt/)
-- [cheddy hair](https://music.allwomenstalk.com/u-ks-biggest-stars-teamed-up-to-record-band-aid-charity-single/)
-- [Family Parodies "All about That Bass" into a Hilar...](https://funny.allwomenstalk.com/family-parodies-all-about-that-bass-into-a-hilarious-thanksgiving-anthem/)
-- [The Soundtrack for an Adventurer's Life ...](https://music.allwomenstalk.com/the-soundtrack-for-an-adventurers-life/)
+- [taylor swift 1789](https://music.allwomenstalk.com/heres-taylor-swifts-album-in-an-epic-minute-mash-up/)
 - [The Ultimate Essentials for Music Fests ...](https://music.allwomenstalk.com/the-ultimate-essentials-for-music-fests/)
-- [Documentaries That All Musos Should See ...](https://music.allwomenstalk.com/documentaries-that-all-musos-should-see/)
+- [cheddy hair](https://music.allwomenstalk.com/u-ks-biggest-stars-teamed-up-to-record-band-aid-charity-single/)
 - [apple music info](https://music.allwomenstalk.com/all-you-need-to-know-about-apple-music/)
+- [The Soundtrack for an Adventurer's Life ...](https://music.allwomenstalk.com/the-soundtrack-for-an-adventurers-life/)
+- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
+- [Family Parodies "All about That Bass" into a Hilar...](https://funny.allwomenstalk.com/family-parodies-all-about-that-bass-into-a-hilarious-thanksgiving-anthem/)
+- [good run songs](https://running.allwomenstalk.com/best-songs-for-your-running-playlist/)
+- [Documentaries That All Musos Should See ...](https://music.allwomenstalk.com/documentaries-that-all-musos-should-see/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 - [10 Best Albums of 2010 ...](https://allwomenstalk.com/best-albums-of/)
 

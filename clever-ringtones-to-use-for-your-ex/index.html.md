@@ -56,16 +56,16 @@ If you’re worried you might pick up a phone call from an ex, assign one of the
 
 ## Related Posts
 
-- [why am i boy crazy](https://love.allwomenstalk.com/crazy-emotions-crushes-put-you-through/)
-- [how to react to someone who hurt you](https://lifestyle.allwomenstalk.com/ways-to-handle-seeing-someone-that-hurt-you-from-your-past-the-first-time/)
-- [getting over a crush](https://love.allwomenstalk.com/tips-for-getting-over-your-crush-whos-taken/)
+- [how to keep your mind busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-your-mind-off-of-a-breakup/)
 - [why do i feel sad when my favorite show ends](https://lifestyle.allwomenstalk.com/tips-on-how-to-cope-when-your-favorite-tv-show-ends/)
 - [how to overcome possessiveness in friendship](https://love.allwomenstalk.com/tips-to-overcome-possessiveness-of-the-excessive-kind/)
-- [how to keep your mind busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-your-mind-off-of-a-breakup/)
-- [my boyfriend talks about his ex](https://love.allwomenstalk.com/tactics-for-dealing-with-your-boyfriends-annoying-ex/)
-- [break up cliches](https://love.allwomenstalk.com/of-the-best-break-up-cliches/)
-- [contemplating breaking up](https://love.allwomenstalk.com/things-to-keep-in-mind-when-contemplating-a-breakup/)
 - [i still miss my first love](https://love.allwomenstalk.com/things-you-can-learn-from-losing-your-first-love/)
+- [contemplating breaking up](https://love.allwomenstalk.com/things-to-keep-in-mind-when-contemplating-a-breakup/)
+- [how to react to someone who hurt you](https://lifestyle.allwomenstalk.com/ways-to-handle-seeing-someone-that-hurt-you-from-your-past-the-first-time/)
+- [why am i boy crazy](https://love.allwomenstalk.com/crazy-emotions-crushes-put-you-through/)
+- [my boyfriend talks about his ex](https://love.allwomenstalk.com/tactics-for-dealing-with-your-boyfriends-annoying-ex/)
+- [getting over a crush](https://love.allwomenstalk.com/tips-for-getting-over-your-crush-whos-taken/)
+- [break up cliches](https://love.allwomenstalk.com/of-the-best-break-up-cliches/)
 - [7 Devious Ways to Get over an Ex ...](https://love.allwomenstalk.com/devious-ways-to-get-over-an-ex/)
 - [7 Sexy Texts to Send Your Partner ...](https://allwomenstalk.com/7-sexy-texts-to-send-your-partner/)
 

@@ -42,16 +42,16 @@ Well, there you have it! These are seven out of many reasons to be excited for F
 
 ## Related Posts
 
-- [divergent ways to watch](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-divergent-movie/)
-- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
-- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
-- [zooey deschanel personality](https://celebs.allwomenstalk.com/awesome-reasons-you-should-love-zooey-deschanel/)
-- [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
-- [love a girl right little mix](https://music.allwomenstalk.com/awesome-reasons-to-love-little-mix/)
-- [riche le stylo eye always pink](https://movies.allwomenstalk.com/compelling-reasons-to-jump-on-the-wahlburgers-bandwagon/)
-- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
-- [is zendaya nice](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
 - [watching sherlock](https://movies.allwomenstalk.com/reasons-to-start-watching-sherlock-asap/)
+- [is zendaya nice](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
+- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
+- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
+- [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
+- [divergent ways to watch](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-divergent-movie/)
+- [zooey deschanel personality](https://celebs.allwomenstalk.com/awesome-reasons-you-should-love-zooey-deschanel/)
+- [riche le stylo eye always pink](https://movies.allwomenstalk.com/compelling-reasons-to-jump-on-the-wahlburgers-bandwagon/)
+- [love a girl right little mix](https://music.allwomenstalk.com/awesome-reasons-to-love-little-mix/)
+- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
 - [7 Reasons to Love the Jonas Brothers ...](https://allwomenstalk.com/7-reasons-to-love-the-jonas-brothers/)
 - [10 Summer Concerts You Won't Want to Miss ...](https://movies.allwomenstalk.com/summer-concerts-you-wont-want-to-miss/)
 

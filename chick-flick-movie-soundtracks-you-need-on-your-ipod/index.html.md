@@ -70,16 +70,16 @@ I love the variety on each of these chick flick movie soundtracks. These movie s
 
 ## Related Posts
 
-- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
-- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
-- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
 - [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
-- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
-- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
 - [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
+- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
+- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
+- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
+- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 - [7 Unforgettable John Williams Soundtracks ...](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
 

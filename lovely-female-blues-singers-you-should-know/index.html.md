@@ -70,16 +70,16 @@ I realize that the blues isn't as popular today as it has been in past generatio
 
 ## Related Posts
 
-- [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
 - [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
-- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
-- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
-- [archie panjabi bikini](https://celebs.allwomenstalk.com/underrated-actresses-that-i-want-to-see-more-of/)
-- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
-- [emma stone character](https://movies.allwomenstalk.com/fabulous-characters-portrayed-by-emma-stone-that-you-cant-help-but-love/)
 - [bridezillas purple and zebra](https://wedding.allwomenstalk.com/well-known-bridezillas-and-their-superpowers/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
 - [women fashion icons](https://fashion.allwomenstalk.com/fabulous-female-style-icons-that-the-world-loves/)
+- [emma stone character](https://movies.allwomenstalk.com/fabulous-characters-portrayed-by-emma-stone-that-you-cant-help-but-love/)
+- [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
+- [archie panjabi bikini](https://celebs.allwomenstalk.com/underrated-actresses-that-i-want-to-see-more-of/)
+- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
+- [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
+- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 - [7 up and Coming Singers You Should Know about ...](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
 

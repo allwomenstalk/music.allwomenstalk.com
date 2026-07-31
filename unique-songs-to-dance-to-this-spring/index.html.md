@@ -56,16 +56,16 @@ What does your spring playlist look like? These are just a few of my favorites, 
 
 ## Related Posts
 
-- [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
+- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
 - [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
+- [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
+- [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
+- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
+- [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
 - [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
 - [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
-- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
-- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
-- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
 - [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
-- [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
-- [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
+- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
 - [7 Scintillating New Scents for Spring ...](https://perfumes.allwomenstalk.com/7-scintillating-new-scents-for-spring/)
 - [The 10 Hottest Dance Songs of 2011 ...](https://lifestyle.allwomenstalk.com/the-hottest-dance-songs-of/)
 
