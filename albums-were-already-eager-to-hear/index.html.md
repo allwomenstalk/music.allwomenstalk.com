@@ -3,7 +3,7 @@ title: "2016 Albums We're Already Eager to Hear ..."
 description: "Gwen Stefani’s Untitled Album; Frank Ocean’s Boys Don’t Cry; Taylor Swift’s Untitled Album; Panic! at the Disco’s Death of a Bachelor; The 1975’s I like It when You Sleep…; More ..."
 url: "https://music.allwomenstalk.com/albums-were-already-eager-to-hear/"
 category: "music"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 2016 Albums We're Already Eager to Hear ...
@@ -54,16 +54,16 @@ What album are you most looking forward to in 2016? Let me know in the comments!
 
 ## Related Posts
 
-- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
 - [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
-- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
 - [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
-- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
-- [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
-- [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
-- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
 - [benefit listening music](https://music.allwomenstalk.com/the-many-benefits-of-listening-to-music/)
 - [😮🎄 christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
+- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
+- [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
+- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
+- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
+- [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
+- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
 - [8 of My Favorite Music Albums from 2010 ...](https://allwomenstalk.com/of-my-favorite-music-albums-from/)
 - [10 Best Albums of 2010 ...](https://allwomenstalk.com/best-albums-of/)
 

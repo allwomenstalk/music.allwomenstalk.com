@@ -3,7 +3,7 @@ title: "7 Acoustic Performances by Phillip Phillips That'll Leave You in Awe ...
 description: "\"home\"; \"gone, Gone, Gone\"; \"Where We Came from\"; \"man on the Moon\"; \"hold on\"; More ..."
 url: "https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/"
 category: "music"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Acoustic Performances by Phillip Phillips That'll Leave You in Awe ...
@@ -42,16 +42,16 @@ Well, there you have it. These are just seven out of many awesome acoustic perfo
 
 ## Related Posts
 
-- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
 - [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [got me good cody simpson](https://music.allwomenstalk.com/awesome-acoustic-performances-by-cody-simpson/)
-- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
-- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
 - [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
+- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
+- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 
