@@ -3,7 +3,7 @@ title: "9 Amazing Rocker Chicks from the '80s ..."
 description: "Pat Benatar; Ann and Nancy Wilson; Lita Ford; Joan Jett; Chrissie Hynde; More ..."
 url: "https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/"
 category: "music"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
 # 9 Amazing Rocker Chicks from the '80s ...
@@ -50,16 +50,16 @@ Rocker chicks of the '80s paved the way for an immeasurable amount of female art
 
 ## Related Posts
 
-- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
-- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
 - [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
-- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
+- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
+- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
 - [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
 - [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
+- [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
 - [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
-- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
+- [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
+- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)
 
