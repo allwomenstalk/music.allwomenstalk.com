@@ -3,7 +3,7 @@ title: "7 Surprising Musical Collaborations That Are Actually Amazing ..."
 description: "Nelly Feat. Tim McGraw – over and over; Kendrick Lamar Feat. Lady Gaga – Bitch, Don’t Kill My Vibe; Eminem Feat. Elton John – Stan; Timbaland Feat. She Wants Revenge – Time; Aerosmith Feat. Run-DMC – Walk This Way; More ..."
 url: "https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/"
 category: "music"
-last_updated: "2026-08-07"
+last_updated: "2026-08-11"
 ---
 
 # 7 Surprising Musical Collaborations That Are Actually Amazing ...
@@ -42,16 +42,16 @@ I am in love with each of these surprising musical collaborations. I love when a
 
 ## Related Posts
 
-- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
-- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
-- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
-- [disney villains singing](https://music.allwomenstalk.com/songs-sung-by-disney-villains-we-cant-help-but-love/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
-- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
-- [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
-- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [disney villains singing](https://music.allwomenstalk.com/songs-sung-by-disney-villains-we-cant-help-but-love/)
+- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
+- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [best albums of 90's](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
+- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
+- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
+- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 
