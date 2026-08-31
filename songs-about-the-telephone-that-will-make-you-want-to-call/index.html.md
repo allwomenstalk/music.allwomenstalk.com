@@ -68,14 +68,14 @@ Must go now, the telephone’s ringing. Over to you. What are your favorite song
 
 ## Related Posts
 
-- [faith hill married to garth brooks](https://celebs.allwomenstalk.com/country-music-love-stories-that-are-aww-worthy/)
-- [eminem singing](https://music.allwomenstalk.com/relatable-and-inspirational-eminem-songs-to-listen-to/)
-- [booty work lyrics](https://music.allwomenstalk.com/silliest-booty-references-in-songs/)
-- [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
-- [7 vs wild intro song](https://music.allwomenstalk.com/bad-girl-songs-to-celebrate-your-wild-side/)
 - [band owl city](https://music.allwomenstalk.com/best-owl-city-songs-im-obsessed-with/)
 - [birdy vocal range](https://music.allwomenstalk.com/jaw-dropping-covers-by-birdy-that-are-truly-humbling/)
+- [7 vs wild intro song](https://music.allwomenstalk.com/bad-girl-songs-to-celebrate-your-wild-side/)
+- [eminem singing](https://music.allwomenstalk.com/relatable-and-inspirational-eminem-songs-to-listen-to/)
 - [cheating love songs](https://music.allwomenstalk.com/songs-about-cheating-that-capture-the-emotions-perfectly/)
+- [faith hill married to garth brooks](https://celebs.allwomenstalk.com/country-music-love-stories-that-are-aww-worthy/)
+- [booty work lyrics](https://music.allwomenstalk.com/silliest-booty-references-in-songs/)
+- [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
 - [lauryn hill breakup songs](https://music.allwomenstalk.com/90s-songs-about-heartbreak-to-help-you-through-a-breakup/)
 - [sinatra frank songs](https://music.allwomenstalk.com/jazzy-songs-by-frank-sinatra-that-truly-inspire-me/)
 - [8 Incredibly Smart Uses of a Phone for Dating ...](https://love.allwomenstalk.com/incredibly-smart-uses-of-a-phone-for-dating/)

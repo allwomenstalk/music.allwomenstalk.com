@@ -58,16 +58,16 @@ Well, there you have it. These are just some of the indie bands I'm currently ob
 
 ## Related Posts
 
-- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
-- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
-- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
-- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
+- [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
+- [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
+- [family problems song](https://music.allwomenstalk.com/songs-to-help-you-deal-with-divorce-in-the-family/)
+- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
+- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
 - [10 Great Indie Films You Have to See ...](https://allwomenstalk.com/10-great-indie-films-you-have-to-see/)
 - [10 Great Music Blogs ...](https://allwomenstalk.com/10-great-music-blogs/)
 

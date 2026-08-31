@@ -90,16 +90,16 @@ These are just a handful of the Christmas songs 🎄 that you should definitely 
 
 ## Related Posts
 
-- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
-- [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
-- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
 - [when you've had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
+- [summer jam songs](https://music.allwomenstalk.com/coolest-summer-songs-from-your-fave-shows-to-jam-out-to/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
 - [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
+- [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
+- [music for stress relief relaxing music for stress](https://music.allwomenstalk.com/relaxing-songs-to-listen-to-when-the-stressors-of-life-are-overwhelming/)
 - [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [fz_pawpt9mo -site:youtube.com](https://music.allwomenstalk.com/summer-tracks-that-are-essentials-for-your-playlist/)
-- [music for stress relief relaxing music for stress](https://music.allwomenstalk.com/relaxing-songs-to-listen-to-when-the-stressors-of-life-are-overwhelming/)
-- [summer jam songs](https://music.allwomenstalk.com/coolest-summer-songs-from-your-fave-shows-to-jam-out-to/)
+- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
 - [Christmas is Pink This Year ...](https://allwomenstalk.com/christmas-is-pink-this-year/)
 - [Young Love ...](https://allwomenstalk.com/young-love/)
 

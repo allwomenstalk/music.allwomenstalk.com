@@ -42,16 +42,16 @@ What’s on your dance playlist this summer? What other suggestions do you have?
 
 ## Related Posts
 
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
 - [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
 - [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
 - [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
 - [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
-- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
-- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
 - [4 Fun Songs to Walk down the Aisle to ...](https://wedding.allwomenstalk.com/fun-songs-to-walk-down-the-aisle-to/)
 - [Five Favorites: Life's a Beach ...](https://allwomenstalk.com/five-favorites-lifes-a-beach/)
 

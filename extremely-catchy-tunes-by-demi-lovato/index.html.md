@@ -42,15 +42,15 @@ Each of Demi Lovato's albums contain phenomenal gems that I can't help singing a
 
 ## Related Posts
 
-- [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
-- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
-- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
-- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
-- [zooey deschanel vocal range](https://music.allwomenstalk.com/stunning-performances-by-she-him-that-will-have-you-astonished/)
 - [funny song about death](https://music.allwomenstalk.com/calming-songs-to-help-you-deal-with-death/)
-- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
 - [cyberpunk gothic](https://music.allwomenstalk.com/cybergoth-bands-to-add-to-your-playlist/)
+- [zooey deschanel vocal range](https://music.allwomenstalk.com/stunning-performances-by-she-him-that-will-have-you-astonished/)
+- [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
 - [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
+- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
+- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
+- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
+- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
 - [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)

@@ -56,16 +56,16 @@ What do you think? Are these brilliant ladies deserving of their title as Queens
 
 ## Related Posts
 
-- [songs with phone in the title](https://music.allwomenstalk.com/songs-about-the-telephone-that-will-make-you-want-to-call/)
+- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
+- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
 - [breakup empowerment songs](https://music.allwomenstalk.com/songs-to-cry-your-eyes-out-to-after-a-breakup/)
+- [7 vs wild intro song](https://music.allwomenstalk.com/bad-girl-songs-to-celebrate-your-wild-side/)
+- [cheating love songs](https://music.allwomenstalk.com/songs-about-cheating-that-capture-the-emotions-perfectly/)
+- [songs with phone in the title](https://music.allwomenstalk.com/songs-about-the-telephone-that-will-make-you-want-to-call/)
 - [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
 - [band owl city](https://music.allwomenstalk.com/best-owl-city-songs-im-obsessed-with/)
 - [eminem singing](https://music.allwomenstalk.com/relatable-and-inspirational-eminem-songs-to-listen-to/)
 - [faith hill married to garth brooks](https://celebs.allwomenstalk.com/country-music-love-stories-that-are-aww-worthy/)
-- [7 vs wild intro song](https://music.allwomenstalk.com/bad-girl-songs-to-celebrate-your-wild-side/)
-- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
-- [cheating love songs](https://music.allwomenstalk.com/songs-about-cheating-that-capture-the-emotions-perfectly/)
-- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [7 Amazing Adele's Love Songs ...](https://celebs.allwomenstalk.com/amazing-adeles-love-songs/)
 

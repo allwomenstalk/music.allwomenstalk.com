@@ -61,16 +61,16 @@ So there you have it kittens, some awesome soundtracks and scores to rock out to
 
 ## Related Posts
 
-- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
+- [best albums of 90's](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
 - [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
 - [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
 - [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
-- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
 - [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
-- [best albums of 90's](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
+- [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [7 Unforgettable John Williams Soundtracks ...](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
 

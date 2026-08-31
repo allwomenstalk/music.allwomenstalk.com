@@ -56,16 +56,16 @@ I hope you’ll check out these cybergoth bands to add a little diversity to you
 
 ## Related Posts
 
-- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
-- [zooey deschanel vocal range](https://music.allwomenstalk.com/stunning-performances-by-she-him-that-will-have-you-astonished/)
-- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
-- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
-- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
-- [funny song about death](https://music.allwomenstalk.com/calming-songs-to-help-you-deal-with-death/)
-- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
-- [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
 - [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
+- [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
+- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
+- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
 - [breakup empowerment songs](https://music.allwomenstalk.com/songs-to-cry-your-eyes-out-to-after-a-breakup/)
+- [most addictive music](https://music.allwomenstalk.com/addictive-pop-songs-to-put-on-your-playlist/)
+- [zooey deschanel vocal range](https://music.allwomenstalk.com/stunning-performances-by-she-him-that-will-have-you-astonished/)
+- [funny song about death](https://music.allwomenstalk.com/calming-songs-to-help-you-deal-with-death/)
+- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
+- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
 - [7 Pop Albums You Should Own ...](https://allwomenstalk.com/7-pop-albums-you-should-own/)
 - [7 R&B Albums You Should Own ...](https://allwomenstalk.com/7-rb-albums-you-should-own/)
 

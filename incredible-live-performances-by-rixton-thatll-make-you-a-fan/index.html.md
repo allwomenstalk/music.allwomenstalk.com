@@ -42,14 +42,14 @@ Well, there you have it! These are just seven out of MANY ridiculously amazing p
 
 ## Related Posts
 
-- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
-- [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
 - [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
-- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
-- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
-- [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
-- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
+- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
 - [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
+- [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
+- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
+- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
+- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
+- [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
 - [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
 - [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)

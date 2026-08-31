@@ -18,14 +18,14 @@ Will you be buying tickets?!
 
 ## Related Posts
 
-- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
-- [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
-- [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
-- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
 - [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
-- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
+- [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
+- [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
+- [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
 - [stories about kings and queens](https://lifestyle.allwomenstalk.com/of-the-craziest-kings-and-queens-in-history/)
+- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
 - [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
+- [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
 - [stalker's greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
 - [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
 - [Bond Girls: the West Side Awaits!](https://allwomenstalk.com/bond-girls-the-west-side-awaits/)

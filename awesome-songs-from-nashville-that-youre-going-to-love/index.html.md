@@ -43,15 +43,15 @@ There you have it, seven awesome songs from Nashville that you’ll love! Don’
 ## Related Posts
 
 - [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
-- [christina agulaira](https://music.allwomenstalk.com/amazing-songs-that-defined/)
-- [what song made tori kelly famous](https://music.allwomenstalk.com/amazing-covers-by-tori-kelly-thatll-make-you-a-fan/)
 - [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
-- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
 - [call your girlfriend lennon and maisy](https://music.allwomenstalk.com/covers-by-lennon-and-maisy-stella-thatll-amaze-you/)
-- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
+- [what song made tori kelly famous](https://music.allwomenstalk.com/amazing-covers-by-tori-kelly-thatll-make-you-a-fan/)
 - [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
 - [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
+- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
+- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
+- [christina agulaira](https://music.allwomenstalk.com/amazing-songs-that-defined/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

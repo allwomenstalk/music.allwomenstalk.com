@@ -42,16 +42,16 @@ Don't let your life get you down. You're capable of making it through anything, 
 
 ## Related Posts
 
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [happy fall songs](https://music.allwomenstalk.com/these-songs-will-give-you-all-of-the-autumn-feels/)
 - [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
+- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
 - [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
+- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
 - [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
 - [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [happy fall songs](https://music.allwomenstalk.com/these-songs-will-give-you-all-of-the-autumn-feels/)
-- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
 - [breaking heart songs](https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/)
-- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [7 Female Role Models for Your Daughter ...](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
 

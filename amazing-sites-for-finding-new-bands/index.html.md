@@ -68,16 +68,16 @@ As you can tell, I'm always searching for new bands. I tend to check at least a 
 
 ## Related Posts
 
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
-- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
-- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
-- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
-- [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
 - [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [2004 radio hits](https://music.allwomenstalk.com/top-hits-from-2004-you-may-have-forgotten-about/)
+- [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
+- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
+- [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
 - [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [best selling albums of the 70s](https://music.allwomenstalk.com/best-selling-albums-of-all-time-you-need-on-your-mp3-player/)
+- [bestie i need you](https://music.allwomenstalk.com/great-songs-to-dedicate-to-your-best-friend/)
 - [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [sub culture list](https://music.allwomenstalk.com/subcultures-created-by-musical-genres/)
 - [8 Ways to Discover New Music ...](https://allwomenstalk.com/8-ways-to-discover-new-music/)
 - [10 Great Music Blogs ...](https://allwomenstalk.com/10-great-music-blogs/)
 

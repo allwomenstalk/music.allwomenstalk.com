@@ -14,16 +14,16 @@ The talented musicians recorded a new version of "Do They Know It's Christmas?,"
 
 ## Related Posts
 
-- [Hot Albums That Are Dropping at the End of 2015 .....](https://music.allwomenstalk.com/hot-albums-that-are-dropping-at-the-end-of/)
-- [Documentaries That All Musos Should See ...](https://music.allwomenstalk.com/documentaries-that-all-musos-should-see/)
 - [apple music info](https://music.allwomenstalk.com/all-you-need-to-know-about-apple-music/)
 - [taylor swift 1789](https://music.allwomenstalk.com/heres-taylor-swifts-album-in-an-epic-minute-mash-up/)
+- [the9 songs](https://music.allwomenstalk.com/the-best-songs-to-power-through-your-chilly-winter-workouts/)
 - [This Music Video Features 100 Real-life Couples & ...](https://music.allwomenstalk.com/this-music-video-features-real-life-couples-will-make-your-heart-melt/)
+- [Hot Albums That Are Dropping at the End of 2015 .....](https://music.allwomenstalk.com/hot-albums-that-are-dropping-at-the-end-of/)
 - [The Ultimate Essentials for Music Fests ...](https://music.allwomenstalk.com/the-ultimate-essentials-for-music-fests/)
 - [good run songs](https://running.allwomenstalk.com/best-songs-for-your-running-playlist/)
-- [the9 songs](https://music.allwomenstalk.com/the-best-songs-to-power-through-your-chilly-winter-workouts/)
-- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
 - [The Soundtrack for an Adventurer's Life ...](https://music.allwomenstalk.com/the-soundtrack-for-an-adventurers-life/)
+- [Documentaries That All Musos Should See ...](https://music.allwomenstalk.com/documentaries-that-all-musos-should-see/)
+- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
 - [Top Celebrity Philantrophists ...](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [Fall out Boy Got Streamed Live ...](https://allwomenstalk.com/fall-out-boy-got-streamed-live/)
 

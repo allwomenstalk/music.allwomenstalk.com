@@ -68,16 +68,16 @@ Happy Birthday Madonna!
 
 ## Related Posts
 
-- [Snarky Gossip Friday Roundup Brought to You Today ...](https://allwomenstalk.com/snarky-gossip-friday-roundup-brought-to-you-today-by-cher/)
 - [world most highest paid model](https://fashion.allwomenstalk.com/who-is-the-worlds-highest-paid-model/)
-- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
 - [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
-- [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
-- [Well, I Loved Jennifer Hudson's Jacket ...](https://allwomenstalk.com/well-i-loved-jennifer-hudsons-jacket/)
-- [After the Oscars - Ellen Tidbits!](https://allwomenstalk.com/after-the-oscars-ellen-tidbits/)
-- [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
-- [The Backup Babe](https://allwomenstalk.com/the-backup-babe/)
+- [Snarky Gossip Friday Roundup Brought to You Today ...](https://allwomenstalk.com/snarky-gossip-friday-roundup-brought-to-you-today-by-cher/)
 - [Lepaparazzi News Update: Olivier with Two New Brun...](https://allwomenstalk.com/lepaparazzi-news-update-olivier-with-two-new-brunettes/)
+- [After the Oscars - Ellen Tidbits!](https://allwomenstalk.com/after-the-oscars-ellen-tidbits/)
+- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
+- [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
+- [Well, I Loved Jennifer Hudson's Jacket ...](https://allwomenstalk.com/well-i-loved-jennifer-hudsons-jacket/)
+- [The Backup Babe](https://allwomenstalk.com/the-backup-babe/)
+- [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
 - [7 Reasons I Adore Lady Gaga ...](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
 - [The Grammy Awards - the Red Carpet ...](https://allwomenstalk.com/the-grammy-awards-the-red-carpet/)
 

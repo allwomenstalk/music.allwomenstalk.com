@@ -80,16 +80,16 @@ Breakups aren’t easy, but these amazing breakup songs may just be what you nee
 
 ## Related Posts
 
-- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
-- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
-- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
-- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
-- [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
 - [www hard core com](https://music.allwomenstalk.com/amazing-hardcore-rock-songs-to-get-you-motivated/)
-- [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
 - [funny wake up song lyrics](https://music.allwomenstalk.com/funny-songs-with-humorous-lyrics-that-will-make-you-laugh/)
-- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
+- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
+- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
+- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
+- [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
+- [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
 - [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
+- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
+- [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
 - [7 Tips on How to Get through a Break up ...](https://love.allwomenstalk.com/tips-on-how-to-get-through-a-break-up/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 

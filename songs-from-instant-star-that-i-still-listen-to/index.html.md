@@ -57,15 +57,15 @@ Well, there you have it! Those are just seven out of many songs from Instant Sta
 ## Related Posts
 
 - [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
-- [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
-- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
-- [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
-- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
 - [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
-- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
-- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
-- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
 - [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
+- [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
+- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
+- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
+- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
+- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
+- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
+- [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 

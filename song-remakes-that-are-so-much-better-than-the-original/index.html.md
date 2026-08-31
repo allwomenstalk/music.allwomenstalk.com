@@ -77,16 +77,16 @@ Which of these remakes do you like better than the original? Or is there a great
 
 ## Related Posts
 
-- [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
-- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
-- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
-- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [marina and the diamonds new album](https://music.allwomenstalk.com/reasons-to-be-excited-about-the-new-album-from-marina-and-the-diamonds/)
-- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
+- [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
+- [youtube most viewed music video](https://music.allwomenstalk.com/the-most-watched-music-videos-of-on-youtube/)
 - [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
+- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
+- [monster mash banned](https://music.allwomenstalk.com/huge-pop-songs-that-you-wont-believe-were-banned/)
 - [songs when you need a good cry](https://music.allwomenstalk.com/songs-to-listen-to-when-you-need-a-good-cry/)
 - [new album releases 2015](https://music.allwomenstalk.com/hotly-anticipated-album-releases-in/)
-- [waitresses christmas wrapping lyrics](https://music.allwomenstalk.com/classic-christmas-songs-to-make-you-merry/)
+- [taylor swift obsessed](https://music.allwomenstalk.com/this-mash-up-is-so-good-its-even-got-taylor-swift-obsessed/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Hollywood Remakes ...](https://movies.allwomenstalk.com/worst-hollywood-remakes/)
 

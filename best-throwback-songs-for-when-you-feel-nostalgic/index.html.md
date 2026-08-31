@@ -49,15 +49,15 @@ Those were my favorite throwback songs! I hope you guys enjoyed them and give th
 
 ## Related Posts
 
-- [best new artist 2013](https://music.allwomenstalk.com/amazing-new-artists-of-that-youve-got-to-listen-to/)
-- [2014 artists](https://music.allwomenstalk.com/wonderful-artists-to-look-out-for-in/)
-- [best songs about nashville](https://music.allwomenstalk.com/awesome-songs-from-nashville-that-youre-going-to-love/)
-- [what song made tori kelly famous](https://music.allwomenstalk.com/amazing-covers-by-tori-kelly-thatll-make-you-a-fan/)
-- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
-- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
 - [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
+- [what song made tori kelly famous](https://music.allwomenstalk.com/amazing-covers-by-tori-kelly-thatll-make-you-a-fan/)
+- [bruno mars nails](https://music.allwomenstalk.com/performances-by-bruno-mars-that-amaze-me-every-time/)
 - [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
 - [christina agulaira](https://music.allwomenstalk.com/amazing-songs-that-defined/)
+- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
+- [best songs about nashville](https://music.allwomenstalk.com/awesome-songs-from-nashville-that-youre-going-to-love/)
+- [2014 artists](https://music.allwomenstalk.com/wonderful-artists-to-look-out-for-in/)
+- [best new artist 2013](https://music.allwomenstalk.com/amazing-new-artists-of-that-youve-got-to-listen-to/)
 - [call your girlfriend lennon and maisy](https://music.allwomenstalk.com/covers-by-lennon-and-maisy-stella-thatll-amaze-you/)
 - [7 Cool Vintage Tees ...](https://allwomenstalk.com/7-cool-vintage-tees/)
 - [7 Perfect Vintage Looks ...](https://allwomenstalk.com/7-perfect-vintage-looks/)

@@ -56,16 +56,16 @@ The staple of any great rock band is the guitarist and these beautiful ladies kn
 
 ## Related Posts
 
-- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
 - [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
+- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
 - [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
 - [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
-- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
-- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
-- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
-- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
-- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
+- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
 - [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
+- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
+- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
 - [7 Cars for Women That Rock ...](https://allwomenstalk.com/7-cars-for-women-that-rock/)
 - [The 7 Most Inspiring Women Celebrities ...](https://allwomenstalk.com/the-7-most-inspiring-women-celebrities/)
 

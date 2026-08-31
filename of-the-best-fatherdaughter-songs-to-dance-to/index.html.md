@@ -42,16 +42,16 @@ So, there you have it! These are just some of my personal favorites. It's seven 
 
 ## Related Posts
 
-- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
-- [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
 - [instant star songs](https://music.allwomenstalk.com/songs-from-instant-star-that-i-still-listen-to/)
+- [nickelback love songs](https://music.allwomenstalk.com/love-songs-for-valentines-day/)
 - [songs to play when you're mad](https://music.allwomenstalk.com/songs-for-when-youre-in-a-bad-mood/)
+- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
+- [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
+- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
+- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
 - [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
 - [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
-- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
-- [britney spears headset music video](https://music.allwomenstalk.com/of-britney-spears-greatest-music-videos/)
-- [nickelback love songs](https://music.allwomenstalk.com/love-songs-for-valentines-day/)
-- [underrated pop artists](https://music.allwomenstalk.com/underrated-female-artists-to-sing-the-soundtrack-of-your-life/)
+- [lyrics to long december by counting crows](https://music.allwomenstalk.com/crooning-songs-from-counting-crows-that-sound-like-pure-poetry/)
 - [8 Romantic Slow-Dancing Songs ...](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
 - [8 Songs to Dance around the Room to ...](https://allwomenstalk.com/8-songs-to-dance-around-the-room-to/)
 

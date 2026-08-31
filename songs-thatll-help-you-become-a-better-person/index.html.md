@@ -42,16 +42,16 @@ It's possible to love yourself, even though you're trying to better yourself. Wh
 
 ## Related Posts
 
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
-- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
 - [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [7 Best Ways to Improve Yourself as a Person ...](https://inspiration.allwomenstalk.com/best-ways-to-improve-yourself-as-a-person/)
 - [7 Changes to Help You Realize Your Potential ...](https://inspiration.allwomenstalk.com/changes-to-help-you-realize-your-potential/)
 

@@ -42,16 +42,16 @@ What songs do you love to listen to during your workouts?
 
 ## Related Posts
 
-- [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
+- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
+- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
+- [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
+- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
+- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
+- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
 - [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
 - [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
-- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
-- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
-- [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
-- [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
-- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
 - [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
-- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
+- [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
 - [7 Best Calorie Burning Dance Moves ...](https://weightloss.allwomenstalk.com/best-calorie-burning-dance-moves/)
 - [7 Sweet Little Rings ...](https://jewelry.allwomenstalk.com/7-sweet-little-rings/)
 

@@ -63,16 +63,16 @@ All of these songs have one key thing in common (besides their songstress, of co
 
 ## Related Posts
 
-- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
 - [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
-- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
 - [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
 - [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
-- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
+- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

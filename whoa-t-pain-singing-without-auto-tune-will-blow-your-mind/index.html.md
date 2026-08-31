@@ -23,15 +23,15 @@ SET LIST
 
 ## Related Posts
 
+- [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
 - [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
 - [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
 - [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
-- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
 - [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
-- [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
+- [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
 - [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
 - [1989 album covers](https://music.allwomenstalk.com/this-mash-up-cover-of-taylor-swifts-entire-album-is-awesome/)
-- [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
+- [heavy metal gandalf](https://music.allwomenstalk.com/this-lord-of-the-rings-star-just-released-a-heavy-metal-christmas-single/)
 - [husband and wife duo singers](https://music.allwomenstalk.com/husband-and-wife-duo-cover-the-years-top-hits-in-enchanting-medley/)
 - [Leona Lewis' Bleeding Love Remix ...](https://allwomenstalk.com/leona-lewis-bleeding-love-remix/)
 - [It's Time to Listen to These Lesser-Known but Stel...](https://music.allwomenstalk.com/lesser-known-amazing-singers-you-must-check-out/)

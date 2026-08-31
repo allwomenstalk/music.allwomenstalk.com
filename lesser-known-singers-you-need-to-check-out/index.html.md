@@ -54,14 +54,14 @@ I hope you enjoy having a listen to these **little known musicians**! I absolute
 
 ## Related Posts
 
-- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
-- [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
-- [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
+- [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
 - [breakup songs for guys](https://music.allwomenstalk.com/upbeat-songs-to-help-you-get-over-a-guy/)
+- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
+- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
 - [songs for the spring](https://music.allwomenstalk.com/unique-songs-to-dance-to-this-spring/)
 - [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
-- [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
-- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
+- [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
+- [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
 - [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
 - [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
 - [7 up and Coming Singers You Should Know about ...](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)

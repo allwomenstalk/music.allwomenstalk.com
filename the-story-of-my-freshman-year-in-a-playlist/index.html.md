@@ -56,16 +56,16 @@ John Mayer’s “Half of my Heart” – what can I say, I was obsessed with th
 
 ## Related Posts
 
-- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
-- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
 - [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
-- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
 - [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
 - [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
+- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
 - [9 Inspirational Songs to Keep Your Day Going ...](https://lifestyle.allwomenstalk.com/inspirational-songs-to-keep-your-day-going/)
 - [The 20 Songs That Would Be on the Soundtrack to My...](https://allwomenstalk.com/the-20-songs-that-would-be-on-the-soundtrack-to-my-life/)
 

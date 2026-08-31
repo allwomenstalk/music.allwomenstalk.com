@@ -56,16 +56,16 @@ These influential albums of the '00s are already classics despite the fact that 
 
 ## Related Posts
 
-- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
-- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
-- [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
-- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
-- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
-- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
+- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
+- [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
+- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
+- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
 - [7 Pop Albums You Should Own ...](https://allwomenstalk.com/7-pop-albums-you-should-own/)
 - [7 Best Movie Soundtracks ...](https://allwomenstalk.com/7-best-movie-soundtracks/)
 

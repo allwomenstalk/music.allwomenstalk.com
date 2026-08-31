@@ -43,15 +43,15 @@ What songs do you crank while you’re on the road? Will you be adding any of th
 ## Related Posts
 
 - [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
-- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
-- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
 - [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
 - [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
+- [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
+- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
 - [Camping Girly Girl Style ...](https://allwomenstalk.com/camping-girly-girl-style/)
 - [Fun Flicks for Your Next Girls' Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
 

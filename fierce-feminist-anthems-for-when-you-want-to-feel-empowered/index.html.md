@@ -58,15 +58,15 @@ Which songs make you wanna kick ass?
 
 ## Related Posts
 
-- [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
-- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
-- [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
 - [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
-- [denise key and peele actress](https://funny.allwomenstalk.com/hilarious-women-who-are-killing-the-comedy-game/)
-- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
 - [elegant female movie characters](https://movies.allwomenstalk.com/fierce-female-movie-characters-who-dont-need-to-be-rescued/)
-- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
 - [patricia bright and mike](https://parenting.allwomenstalk.com/the-ultimate-hot-mama-of-youtube-right-here/)
+- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
+- [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
+- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
+- [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
+- [denise key and peele actress](https://funny.allwomenstalk.com/hilarious-women-who-are-killing-the-comedy-game/)
+- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
 - [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [Proof That Girl Power is Real, and Seriously Aweso...](https://inspiration.allwomenstalk.com/proof-that-girl-power-is-real-and-seriously-awesome/)

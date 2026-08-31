@@ -56,16 +56,16 @@ Each of these shock rockers did something out of the ordinary at the time that g
 
 ## Related Posts
 
-- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
-- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
-- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
-- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
 - [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
 - [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
+- [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
+- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
 - [Backstage Buzz at the SAG Awards ...](https://bilbr.com/backstage-buzz-at-the-sag-awards/)
 - [Fall out Boy Got Streamed Live ...](https://allwomenstalk.com/fall-out-boy-got-streamed-live/)
 

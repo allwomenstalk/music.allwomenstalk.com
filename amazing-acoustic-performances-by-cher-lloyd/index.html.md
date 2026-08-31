@@ -44,14 +44,14 @@ That sums up my list! It isn't all of Cher's acoustic performances (there are ma
 
 - [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
 - [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
-- [switchfoot controversy](https://music.allwomenstalk.com/controversial-songs-that-are-worth-listening-to/)
-- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
-- [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
 - [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
+- [switchfoot controversy](https://music.allwomenstalk.com/controversial-songs-that-are-worth-listening-to/)
 - [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
+- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
 - [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
+- [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Amazing Adele's Love Songs ...](https://celebs.allwomenstalk.com/amazing-adeles-love-songs/)
 

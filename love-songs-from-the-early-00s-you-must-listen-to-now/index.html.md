@@ -217,15 +217,15 @@ P.S. Love these songs? Enjoy a playlist on us! (Just ... pretend Taylor Swift is
 ## Related Posts
 
 - [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
-- [😮🎄 christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
 - [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
+- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
 - [songs about bad love](https://music.allwomenstalk.com/sexy-songs-about-liking-bad-boys/)
 - [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
 - [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
-- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
 - [most viewed youtube video 2015](https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/)
 - [best song for morning](https://music.allwomenstalk.com/songs-thatll-make-you-feel-pretty-as-you-get-ready-in-the-morning/)
-- [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
+- [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
+- [😮🎄 christmas song](https://music.allwomenstalk.com/modern-covers-of-your-favorite-classic-christmas-songs/)
 - [Top 10 Songs of the 90's ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 - [40 Best Romantic Songs + Video Clips ...](https://allwomenstalk.com/best-romantic-songs/)
 

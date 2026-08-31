@@ -60,14 +60,14 @@ Because sometimes, all we really can do is just, "Move Along."
 
 ## Related Posts
 
-- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
 - [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
 - [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
 - [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
+- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
+- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
 - [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)

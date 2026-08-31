@@ -14,16 +14,16 @@ What was your favorite part about this cover?
 
 ## Related Posts
 
-- [apple music info](https://music.allwomenstalk.com/all-you-need-to-know-about-apple-music/)
-- [7 Awesome UK Artists You Should Be Listening to .....](https://music.allwomenstalk.com/awesome-uk-artists-you-should-be-listening-to/)
-- [Family Parodies "All about That Bass" into a Hilar...](https://funny.allwomenstalk.com/family-parodies-all-about-that-bass-into-a-hilarious-thanksgiving-anthem/)
 - [taylor swift 1789](https://music.allwomenstalk.com/heres-taylor-swifts-album-in-an-epic-minute-mash-up/)
+- [7 Awesome UK Artists You Should Be Listening to .....](https://music.allwomenstalk.com/awesome-uk-artists-you-should-be-listening-to/)
 - [This Highly-anticipated Soundtrack is Shaping up t...](https://music.allwomenstalk.com/this-highly-anticipated-soundtrack-is-shaping-up-to-be-one-of-the-best-youll-hear/)
+- [15 Must-hear Album Releases of the Fall ...](https://music.allwomenstalk.com/must-hear-album-releases-of-the-fall/)
+- [Family Parodies "All about That Bass" into a Hilar...](https://funny.allwomenstalk.com/family-parodies-all-about-that-bass-into-a-hilarious-thanksgiving-anthem/)
+- [apple music info](https://music.allwomenstalk.com/all-you-need-to-know-about-apple-music/)
 - [cheddy hair](https://music.allwomenstalk.com/u-ks-biggest-stars-teamed-up-to-record-band-aid-charity-single/)
 - [The Ultimate Essentials for Music Fests ...](https://music.allwomenstalk.com/the-ultimate-essentials-for-music-fests/)
-- [15 Must-hear Album Releases of the Fall ...](https://music.allwomenstalk.com/must-hear-album-releases-of-the-fall/)
-- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
 - [This Music Video Features 100 Real-life Couples & ...](https://music.allwomenstalk.com/this-music-video-features-real-life-couples-will-make-your-heart-melt/)
+- [7 Hilarious Holiday Songs to Boost Your Spirit ...](https://funny.allwomenstalk.com/hilarious-holiday-songs-to-boost-your-spirit/)
 - [Pop Nosh: Milli Vanilli Gets a Biopic ...](https://allwomenstalk.com/pop-nosh-milli-vanilli-gets-a-biopic/)
 - [Rihanna's "Umbrella" Featuring Jay-Z ...](https://allwomenstalk.com/rihannas-umbrella-featuring-jay-z/)
 

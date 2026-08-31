@@ -28,16 +28,16 @@ The magical concert was a sensational hit and we cannot wait to see him again in
 
 ## Related Posts
 
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
-- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
-- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
 - [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
 - [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
 - [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
+- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
+- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
 - [Vendor Spotlight: Soraya's Mid-East Dance and Musi...](https://wedding.allwomenstalk.com/vendor-spotlight-sorayas-mid-east-dance-and-music-productions/)
 - [REVIEW: CoverGirl Lash Exact Mascara ...](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
 

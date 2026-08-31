@@ -88,16 +88,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
+- [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
 - [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
+- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
 - [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
+- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
+- [heavy metal wedding songs](https://music.allwomenstalk.com/heavy-metal-songs-that-will-have-you-rocking-out-to-your-next-workout/)
 - [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
 - [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
-- [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
-- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
 - [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
 - [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
-- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Reasons to Laugh More ...](https://allwomenstalk.com/7-reasons-to-laugh-more/)
 

@@ -66,15 +66,15 @@ I can say from experience that long-distance relationships can work, but you *mu
 
 ## Related Posts
 
-- [most famous love story books](https://books.allwomenstalk.com/of-my-favorite-romantic-love-stories/)
-- [sweethearts song](https://music.allwomenstalk.com/songs-to-send-to-your-sweetheart/)
 - [how to win the i love you more game](https://love.allwomenstalk.com/ways-he-shows-you-he-loves-you-without-saying-it/)
+- [sweethearts song](https://music.allwomenstalk.com/songs-to-send-to-your-sweetheart/)
 - [love experience](https://love.allwomenstalk.com/types-of-love-you-may-experience-in-life/)
 - [old time love letters](https://love.allwomenstalk.com/amazing-love-letters-from-the-past-century/)
-- [how to make my boyfriend's birthday special](https://love.allwomenstalk.com/special-ways-to-celebrate-your-boyfriends-birthday/)
 - [can animal dream](https://love.allwomenstalk.com/different-things-that-a-kiss-could-mean/)
+- [how to make my boyfriend's birthday special](https://love.allwomenstalk.com/special-ways-to-celebrate-your-boyfriends-birthday/)
 - [what to wear on a romantic weekend getaway](https://love.allwomenstalk.com/things-you-need-to-bring-along-for-a-romantic-weekend-away/)
 - [kiss love gif](https://love.allwomenstalk.com/best-times-to-be-kissed-by-your-partner/)
+- [most famous love story books](https://books.allwomenstalk.com/of-my-favorite-romantic-love-stories/)
 - [how do i show someone i love them](https://love.allwomenstalk.com/ways-to-show-someone-you-love-them-without-words/)
 - [8 Romantic Slow-Dancing Songs ...](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
 - [15 Great Songs about Long Distance Love ...](https://allwomenstalk.com/9-great-songs-about-long-distance-love/)

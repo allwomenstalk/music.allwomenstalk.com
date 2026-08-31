@@ -42,15 +42,15 @@ Hopefully a few of these tunes will help give you more confidence, whether that'
 
 ## Related Posts
 
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
 - [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
-- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
-- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
-- [got me good cody simpson](https://music.allwomenstalk.com/awesome-acoustic-performances-by-cody-simpson/)
-- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
 - [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
 - [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [got me good cody simpson](https://music.allwomenstalk.com/awesome-acoustic-performances-by-cody-simpson/)
+- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
+- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
+- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
 - [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
 - [7 Ways to Be More Confident ...](https://health.allwomenstalk.com/ways-to-be-more-confident/)
 - [7 Ways to Improve Your Confidence ...](https://allwomenstalk.com/7-ways-to-improve-your-confidence/)

@@ -50,15 +50,15 @@ There you have it. These nine performances by Bruno Mars are my current favorite
 
 ## Related Posts
 
-- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
-- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
-- [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
 - [the pretty reckless concert](https://music.allwomenstalk.com/awesome-live-performances-by-the-pretty-reckless/)
-- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
-- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
 - [lovely tunes](https://music.allwomenstalk.com/lovely-tunes-that-are-perfect-for-valentines-day/)
 - [songs about husband cheating](https://music.allwomenstalk.com/songs-about-cheating-that-will-help-you-heal/)
+- [contemporary artists to know](https://celebs.allwomenstalk.com/contemporary-artists-everyone-should-know/)
 - [half moon lyrics](https://music.allwomenstalk.com/amazing-live-performances-by-half-moon-run/)
+- [songs for life](https://music.allwomenstalk.com/inspiring-songs-to-help-you-through-every-stage-of-your-life/)
+- [songs about reaching goals](https://music.allwomenstalk.com/inspiring-beyonce-songs-for-when-youre-feeling-down/)
+- [mumford and sons music](https://music.allwomenstalk.com/catchy-songs-by-mumford-sons-worth-checking-out/)
+- [uplifting songs](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-you-are-in-a-bad-mood/)
 - [songs by cher lloyd](https://music.allwomenstalk.com/amazing-acoustic-performances-by-cher-lloyd/)
 - [9 Something Corporate Songs That Move Me ...](https://allwomenstalk.com/9-something-corporate-songs-that-move-me/)
 - [7 Mesmerizing TV Performances by Musicians in 2013...](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)

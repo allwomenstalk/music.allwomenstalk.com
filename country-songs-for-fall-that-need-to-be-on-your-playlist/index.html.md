@@ -49,16 +49,16 @@ No longer is country only reserved for summertime. The beauty about country musi
 
 ## Related Posts
 
-- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
-- [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
 - [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
-- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
-- [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
-- [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
-- [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
-- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
-- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
 - [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
+- [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
+- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
+- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
+- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
+- [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
+- [best collaborations in music](https://music.allwomenstalk.com/best-cross-genre-music-collaborations/)
+- [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
+- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
 - [7 Pop Albums You Should Own ...](https://allwomenstalk.com/7-pop-albums-you-should-own/)
 - [7 Best Songs for Relaxing ...](https://allwomenstalk.com/7-best-songs-for-relaxing/)
 
