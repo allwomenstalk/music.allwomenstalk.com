@@ -3,7 +3,7 @@ title: "7 Best Cross Genre Music Collaborations ..."
 description: "Aerosmith & Run-Dmc; Jay-Z & Linkin Park; Kid Cudi, MGMT, & Ratatat; Tim McGraw & Nelly; Florence Welch & a$ap Rocky; More ..."
 url: "https://music.allwomenstalk.com/best-cross-genre-music-collaborations/"
 category: "music"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Best Cross Genre Music Collaborations ...
@@ -43,15 +43,15 @@ Whether you’re into hip-hop, country or pop, when these artists from different
 ## Related Posts
 
 - [somgs about eating](https://music.allwomenstalk.com/songs-with-food-in-the-title/)
-- [dancetunes](https://music.allwomenstalk.com/of-my-all-time-favorite-dance-tunes/)
-- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
-- [inspirational song for students](https://music.allwomenstalk.com/amazing-music-videos-that-are-such-an-inspiration-for-all-of-us/)
-- [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
-- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
 - [funny parodies of popular songs](https://music.allwomenstalk.com/best-youtube-channels-with-parodies-of-popular-songs/)
-- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
 - [alternative dance artists](https://music.allwomenstalk.com/talented-alternative-artists-worth-checking-out/)
 - [good songs for a halloween playlist](https://music.allwomenstalk.com/songs-that-need-to-be-on-your-halloween-playlist/)
+- [94.9 surf](https://music.allwomenstalk.com/awesome-pandora-stations-that-are-hip-and-happening/)
+- [holding on song](https://music.allwomenstalk.com/songs-about-holding-on-when-life-gets-rough/)
+- [songs for prank texting](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
+- [best tv performances of all time](https://music.allwomenstalk.com/mesmerizing-tv-performances-by-musicians-in/)
+- [dancetunes](https://music.allwomenstalk.com/of-my-all-time-favorite-dance-tunes/)
+- [inspirational song for students](https://music.allwomenstalk.com/amazing-music-videos-that-are-such-an-inspiration-for-all-of-us/)
 - [7 Best Cross-over Vehicles ...](https://allwomenstalk.com/7-best-cross-over-vehicles/)
 - [7 Best Songs from Commercials ...](https://allwomenstalk.com/7-best-songs-from-commercials/)
 

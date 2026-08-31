@@ -3,7 +3,7 @@ title: "The Truth Behind the Most Famous One Hit Wonders We Still Love"
 description: "Tubthumping - Chumbawamba; Never Gonna Give You up - Rick Astley; Come on Eileen - Dexys Midnight Runners; Teenage Dirtbag - Wheatus; Eye of the Tiger - Survivor; More ..."
 url: "https://music.allwomenstalk.com/one-hit-wonders-we-love/"
 category: "music"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # The Truth Behind the Most Famous One Hit Wonders We Still Love
@@ -70,15 +70,15 @@ Perhaps the real reason these bands are only one hit wonders is that the songs t
 
 ## Related Posts
 
-- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
 - [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
+- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
 - [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [what to do when you're fed up](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-fed-up-with-love/)
-- [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
-- [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
-- [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
 - [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)

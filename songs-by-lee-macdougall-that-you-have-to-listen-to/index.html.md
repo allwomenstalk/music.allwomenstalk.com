@@ -3,7 +3,7 @@ title: "7 Songs by Lee MacDougall That You Have to Listen to ..."
 description: "All the Wrong Places; Joanna; The Star Hotel; London in the Summer; A Girl in New York; More ..."
 url: "https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/"
 category: "music"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Songs by Lee MacDougall That You Have to Listen to ...
@@ -42,16 +42,16 @@ Lee MacDougall is a talented artist you should definitely check out. His songs a
 
 ## Related Posts
 
-- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
-- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
 - [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
-- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
-- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
-- [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
 - [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
+- [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
+- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
+- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
+- [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
 - [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 
