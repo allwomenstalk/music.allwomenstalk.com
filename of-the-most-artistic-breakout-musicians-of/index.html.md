@@ -57,15 +57,15 @@ No stranger to the genres of electro house and dubstep, Krewella has steadily ma
 ## Related Posts
 
 - [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
+- [7 Amazing British Artists That You'll Fall in Love...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
 - [7 Songs from the '90s We Still Love ...](https://music.allwomenstalk.com/songs-from-the-90s-we-still-love/)
-- [7 Things to Expect from Miley's Bangerz Tour ...](https://music.allwomenstalk.com/things-to-expect-from-mileys-bangerz-tour/)
 - [sibling musicians](https://music.allwomenstalk.com/sibling-music-groups-that-are-insanely-talented/)
+- [7 Classic Beatles Songs That Helped Reinvent the M...](https://music.allwomenstalk.com/classic-beatles-songs-that-helped-reinvent-the-music-industry/)
 - [7 Awesome New Bands You Should Be Listening to Rig...](https://music.allwomenstalk.com/awesome-new-bands-you-should-be-listening-to-right-now/)
 - [7 Festive Holiday Soundtracks to Get You in the Mo...](https://music.allwomenstalk.com/festive-holiday-soundtracks-to-get-you-in-the-mood/)
-- [7 Must-See Concerts in 2014 ...](https://music.allwomenstalk.com/must-see-concerts-in/)
-- [7 Amazing British Artists That You'll Fall in Love...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
 - [learn about classical music](https://music.allwomenstalk.com/best-ways-to-learn-about-classical-music/)
-- [7 Classic Beatles Songs That Helped Reinvent the M...](https://music.allwomenstalk.com/classic-beatles-songs-that-helped-reinvent-the-music-industry/)
+- [7 Must-See Concerts in 2014 ...](https://music.allwomenstalk.com/must-see-concerts-in/)
+- [7 Things to Expect from Miley's Bangerz Tour ...](https://music.allwomenstalk.com/things-to-expect-from-mileys-bangerz-tour/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 

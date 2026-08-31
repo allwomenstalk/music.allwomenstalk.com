@@ -42,16 +42,16 @@ With the amount of pop songs that were hit singles this year alone, the options 
 
 ## Related Posts
 
-- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
 - [songs with phone in the title](https://music.allwomenstalk.com/songs-about-the-telephone-that-will-make-you-want-to-call/)
-- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
-- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
-- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
+- [who is considered the queen of soul](https://music.allwomenstalk.com/powerful-and-anthemic-songs-from-queens-of-soul/)
+- [faith hill married to garth brooks](https://celebs.allwomenstalk.com/country-music-love-stories-that-are-aww-worthy/)
+- [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
 - [songs of ocean](https://music.allwomenstalk.com/hey-ocean-songs-that-you-must-add-to-your-playlist/)
 - [significant othee](https://music.allwomenstalk.com/ingenious-songs-based-on-video-games/)
-- [kiss the rain instrumental](https://music.allwomenstalk.com/instrumental-songs-to-get-you-through-exams/)
+- [pick me song](https://music.allwomenstalk.com/happy-disney-songs-for-when-you-need-a-pick-me-up/)
+- [david guetta shoes](https://music.allwomenstalk.com/energetic-songs-by-david-guetta-that-will-keep-you-on-your-feet/)
+- [songs by britney spears](https://music.allwomenstalk.com/infectious-songs-by-britney-spears-that-helped-define-her-career/)
 - [breakup empowerment songs](https://music.allwomenstalk.com/songs-to-cry-your-eyes-out-to-after-a-breakup/)
-- [faith hill married to garth brooks](https://celebs.allwomenstalk.com/country-music-love-stories-that-are-aww-worthy/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 Best Songs from Commercials ...](https://allwomenstalk.com/7-best-songs-from-commercials/)
 

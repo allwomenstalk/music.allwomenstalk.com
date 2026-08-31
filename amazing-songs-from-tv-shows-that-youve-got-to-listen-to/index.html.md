@@ -56,16 +56,16 @@ Seriously, please don't judge me on the shows; I know that Jersey Shore and Teen
 
 ## Related Posts
 
-- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
-- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
-- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
-- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
-- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [does rolling stone magazine still exist](https://music.allwomenstalk.com/music-magazines-to-read-for-the-latest-scoop/)
-- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [lead singer of twisted sister](https://music.allwomenstalk.com/shock-rockers-who-spark-controversy/)
 - [songs that help you study](https://music.allwomenstalk.com/songs-to-keep-you-focused-while-studying/)
 - [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
+- [new blues station on pandora](https://apps.allwomenstalk.com/amazing-pandora-stations-you-probably-dont-know-about/)
+- [new albums 2014](https://music.allwomenstalk.com/most-anticipated-albums-of-2014/)
 - [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
+- [unique wedding song](https://music.allwomenstalk.com/romantic-wedding-songs-that-will-give-you-goosebumps/)
+- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [hard core workout](https://music.allwomenstalk.com/hardcore-rock-songs-to-workout-to/)
 - [7 Best Songs from Commercials ...](https://allwomenstalk.com/7-best-songs-from-commercials/)
 - [7 Great Radio Shows ...](https://allwomenstalk.com/7-great-radio-shows/)
 

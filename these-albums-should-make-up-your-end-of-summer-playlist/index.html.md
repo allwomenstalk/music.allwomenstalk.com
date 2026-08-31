@@ -42,16 +42,16 @@ What is your favorite album on this list? Is it your favorite album of the summe
 
 ## Related Posts
 
-- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
+- [breaking heart songs](https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/)
 - [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
 - [sad songs to listen to when you miss someone](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-missing-someone/)
+- [skin rihanna lyrics](https://music.allwomenstalk.com/seductive-songs-to-listen-to-during-sex/)
+- [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
 - [best comedies on broadway](https://movies.allwomenstalk.com/musical-comedies-thatll-make-you-laugh-and-sing/)
 - [slow dance romantic songs](https://music.allwomenstalk.com/dance-to-these-slow-songs-with-your-bf/)
-- [breaking heart songs](https://music.allwomenstalk.com/sad-songs-that-will-break-your-heart/)
-- [skin rihanna lyrics](https://music.allwomenstalk.com/seductive-songs-to-listen-to-during-sex/)
-- [good songs to listen to while doing homework](https://music.allwomenstalk.com/peaceful-music-to-listen-to-while-you-do-homework/)
-- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
 - [happy fall songs](https://music.allwomenstalk.com/these-songs-will-give-you-all-of-the-autumn-feels/)
+- [boosting songs](https://music.allwomenstalk.com/songs-that-will-instantly-boost-your-mood/)
 - [Top 10 Books You Should Read This Summer ...](https://allwomenstalk.com/top-10-books-you-should-read-this-summer/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

@@ -42,16 +42,16 @@ Don't let your insecurities stop you from living a happy life. It's normal to fe
 
 ## Related Posts
 
-- [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
-- [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
-- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
-- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
-- [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
-- [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
 - [1989 album covers](https://music.allwomenstalk.com/this-mash-up-cover-of-taylor-swifts-entire-album-is-awesome/)
-- [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
+- [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
 - [1989 best songs taylor swift](https://music.allwomenstalk.com/songs-from-taylor-swifts-youll-absolutely-love/)
+- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
+- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
 - [song remakes](https://music.allwomenstalk.com/song-remakes-that-are-so-much-better-than-the-original/)
+- [songs inspired by other songs](https://music.allwomenstalk.com/famous-songs-inspired-by-celebrities/)
+- [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
+- [best new indie bands](https://music.allwomenstalk.com/awesome-new-indie-bands-you-should-be-listening-to/)
+- [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
 - [7 Things That Make You Beautiful ...](https://allwomenstalk.com/7-things-that-make-you-beautiful/)
 - [7 Ways to Be Lovely ...](https://lifestyle.allwomenstalk.com/ways-to-be-lovely/)
 

@@ -36,16 +36,16 @@ Are you looking for a **non-cheesy Christmas playlist**? This time of year, it f
 
 ## Related Posts
 
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
 - [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
 - [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
-- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
 - [hot artists](https://music.allwomenstalk.com/hot-artists-you-should-be-listening-to-right-now/)
 - [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
 - [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
 - [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
 - [Top 10 of My Enchantingly Entertaining Favorite Ch...](https://lifestyle.allwomenstalk.com/top-of-my-enchantingly-entertaining-favorite-christmas-songs/)
 - [9 Non-traditional and Fun Ways to Celebrate Christ...](https://lifestyle.allwomenstalk.com/non-traditional-and-fun-ways-to-celebrate-christmas-this-year/)
 

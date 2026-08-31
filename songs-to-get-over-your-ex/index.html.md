@@ -134,16 +134,16 @@ Your turn now ladies. Pitch in with your favorites.
 
 ## Related Posts
 
-- [leave him alone he'll come back](https://love.allwomenstalk.com/how-to-handle-the-ex-that-wont-leave-your-bf-alone/)
-- [matures ex](https://love.allwomenstalk.com/how-to-be-a-mature-ex-girlfriend/)
-- [funny break up cakes](https://love.allwomenstalk.com/use-these-cakes-to-break-up-with-your-boyfriend/)
 - [missing an ex](https://love.allwomenstalk.com/things-you-wont-miss-about-your-ex-once-hes-gone/)
+- [leave him alone he'll come back](https://love.allwomenstalk.com/how-to-handle-the-ex-that-wont-leave-your-bf-alone/)
+- [best breakup lines](https://love.allwomenstalk.com/what-cliche-breakup-lines-really-mean/)
+- [loreal le stylo smoky eye spark](https://love.allwomenstalk.com/rules-to-follow-when-getting-back-with-an-ex/)
+- [short story alcohol](https://love.allwomenstalk.com/short-story-exes-and-alcohol/)
+- [funny break up cakes](https://love.allwomenstalk.com/use-these-cakes-to-break-up-with-your-boyfriend/)
 - [break up mantra](https://love.allwomenstalk.com/breakup-mantras-that-will-help-you-move-on/)
 - [message for a friend going through a breakup](https://lifestyle.allwomenstalk.com/dealing-with-the-devastation-of-a-friend-breakup/)
 - [how many breakups happen a day](https://love.allwomenstalk.com/how-to-keep-your-relationship-strong-during-the-season-of-breakups/)
-- [loreal le stylo smoky eye spark](https://love.allwomenstalk.com/rules-to-follow-when-getting-back-with-an-ex/)
-- [best breakup lines](https://love.allwomenstalk.com/what-cliche-breakup-lines-really-mean/)
-- [short story alcohol](https://love.allwomenstalk.com/short-story-exes-and-alcohol/)
+- [matures ex](https://love.allwomenstalk.com/how-to-be-a-mature-ex-girlfriend/)
 - [9 Ways to Get over Your Ex in a Week ...](https://love.allwomenstalk.com/ways-to-get-over-your-ex-in-a-week/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 

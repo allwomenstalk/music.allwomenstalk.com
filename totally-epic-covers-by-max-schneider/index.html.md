@@ -42,16 +42,16 @@ There you have it! These awesome covers by Max Schneider will turn you into a ma
 
 ## Related Posts
 
-- [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
-- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
-- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
-- [spider man crimes](https://funny.allwomenstalk.com/weirdest-crimes-committed-you-wont-even-imagine/)
 - [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
 - [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
-- [disney series movies](https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/)
 - [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
+- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
+- [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
 - [pysch season 4](https://movies.allwomenstalk.com/best-pysch-episodes-that-we-can-watch-over-and-over/)
+- [spider man crimes](https://funny.allwomenstalk.com/weirdest-crimes-committed-you-wont-even-imagine/)
+- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
+- [disney series movies](https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/)
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 

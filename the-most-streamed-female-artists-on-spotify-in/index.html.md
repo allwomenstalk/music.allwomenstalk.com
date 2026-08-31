@@ -54,15 +54,15 @@ What do you think of the list?
 
 ## Related Posts
 
-- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
-- [chick flick to watch](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
-- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
-- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
 - [miss piggy in glasses](https://lifestyle.allwomenstalk.com/quotes-that-prove-miss-piggy-is-a-feminist-icon/)
+- [chick flick to watch](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
+- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
 - [women directors in hollywood](https://movies.allwomenstalk.com/film-focus-women-directors-in-hollywood/)
 - [disney movies with strong female leads](https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/)
-- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
+- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
 - [vintage ads women](https://funny.allwomenstalk.com/shockingly-sexist-vintage-ads-youve-got-to-see-to-believe/)
+- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
+- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
 - [list of role models](https://teen.allwomenstalk.com/these-are-the-women-who-should-be-your-role-models/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [Top 10 Women's Magazines ...](https://allwomenstalk.com/top-10-womens-magazines/)

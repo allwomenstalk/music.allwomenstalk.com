@@ -60,16 +60,16 @@ Because sometimes, all we really can do is just, "Move Along."
 
 ## Related Posts
 
+- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
+- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
+- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
 - [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
 - [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
-- [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
-- [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
-- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Songs That Will Fire You up for Anything ...](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
 

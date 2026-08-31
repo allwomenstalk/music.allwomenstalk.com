@@ -42,16 +42,16 @@ Music is one of the best ways to alter your mood, so bring your iPod with you wh
 
 ## Related Posts
 
-- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
-- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
 - [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
 - [best workout music playlist](https://music.allwomenstalk.com/time-to-update-your-gym-playlist-with-the-best-ever-workout-songs/)
-- [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
 - [good songs for yoga](https://music.allwomenstalk.com/the-best-songs-to-do-yoga-and-meditate-to/)
-- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
+- [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
 - [songs about a beach](https://music.allwomenstalk.com/dance-worthy-songs-you-need-on-your-beach-playlist/)
+- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
+- [music wrist tattoos](https://beauty.allwomenstalk.com/tattoos-for-music-lovers-that-you-have-to-see-to-believe/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [songs that say fire](https://music.allwomenstalk.com/songs-that-will-fire-you-up-for-anything/)
+- [best make out songs of all time](https://music.allwomenstalk.com/the-best-songs-to-make-out-to/)
 - [7 Flowers That Remind Me That Life is Good …](https://gardening.allwomenstalk.com/7-flowers-that-remind-me-that-life-is-good/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 

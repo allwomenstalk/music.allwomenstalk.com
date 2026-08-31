@@ -42,14 +42,14 @@ I do hope this has been a good introduction into the magical world of classical 
 
 ## Related Posts
 
-- [subjects in music](https://music.allwomenstalk.com/surprising-subjects-for-a-musical/)
-- [Tell It like It is with One of These Catchy Tunes ...](https://music.allwomenstalk.com/hilariously-awesome-songs-that-tell-it-like-it-is/)
-- [loreal le stylo smoky blinged brilliant](https://music.allwomenstalk.com/albums-coming-out-this-fall-worth-checking-out/)
-- [Here's the Ultimate Playlist for Ladies in Love .....](https://love.allwomenstalk.com/adorable-songs-for-ladies-in-love-to-hear/)
-- [Taylor Swift Shakes It off ...](https://celebs.allwomenstalk.com/taylor-swift-shakes-it-off/)
-- [paris riche le smoky spark](https://music.allwomenstalk.com/lesser-known-amazing-singers-you-must-check-out/)
 - [7 Songs to Put on Your 2014 Workout Playlist ...](https://music.allwomenstalk.com/songs-to-put-on-your-workout-playlist/)
+- [Taylor Swift Shakes It off ...](https://celebs.allwomenstalk.com/taylor-swift-shakes-it-off/)
 - [Music & Productivity: do They Go Hand in Hand? ...](https://music.allwomenstalk.com/music-productivity-do-they-go-hand-in-hand/)
+- [subjects in music](https://music.allwomenstalk.com/surprising-subjects-for-a-musical/)
+- [Here's the Ultimate Playlist for Ladies in Love .....](https://love.allwomenstalk.com/adorable-songs-for-ladies-in-love-to-hear/)
+- [loreal le stylo smoky blinged brilliant](https://music.allwomenstalk.com/albums-coming-out-this-fall-worth-checking-out/)
+- [paris riche le smoky spark](https://music.allwomenstalk.com/lesser-known-amazing-singers-you-must-check-out/)
+- [Tell It like It is with One of These Catchy Tunes ...](https://music.allwomenstalk.com/hilariously-awesome-songs-that-tell-it-like-it-is/)
 - [Sing a Little Song for Enormous Benefits ...](https://music.allwomenstalk.com/amazing-benefits-of-singing-that-will-impress-you/)
 - [Music's Biggest Names Teamed up for an Epic 'Beach...](https://music.allwomenstalk.com/musics-biggest-names-teamed-up-for-an-epic-beach-boys-cover/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)

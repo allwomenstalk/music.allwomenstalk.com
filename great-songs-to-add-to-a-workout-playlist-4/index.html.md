@@ -34,16 +34,16 @@ The last set of the playlist, part 5, will come soon. Keep your eyes out for it 
 
 ## Related Posts
 
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
-- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
+- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
 - [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
 - [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
-- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
-- [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
-- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
 - [hot artists](https://music.allwomenstalk.com/hot-artists-you-should-be-listening-to-right-now/)
+- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
+- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
+- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [10 Best Songs to Make Your Day Better ...](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
 

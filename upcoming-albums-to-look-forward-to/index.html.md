@@ -56,16 +56,16 @@ New CDs are so exciting, as they allow us to hear how our favourite artists have
 
 ## Related Posts
 
-- [Tell It like It is with One of These Catchy Tunes ...](https://music.allwomenstalk.com/hilariously-awesome-songs-that-tell-it-like-it-is/)
 - [7 Captivating Orchestral Pieces Perfect for Girls ...](https://music.allwomenstalk.com/orchestral-pieces-for-classical-music-novices/)
+- [Tell It like It is with One of These Catchy Tunes ...](https://music.allwomenstalk.com/hilariously-awesome-songs-that-tell-it-like-it-is/)
+- [Here's the Ultimate Playlist for Ladies in Love .....](https://love.allwomenstalk.com/adorable-songs-for-ladies-in-love-to-hear/)
+- [Sing a Little Song for Enormous Benefits ...](https://music.allwomenstalk.com/amazing-benefits-of-singing-that-will-impress-you/)
 - [7 Songs to Put on Your 2014 Workout Playlist ...](https://music.allwomenstalk.com/songs-to-put-on-your-workout-playlist/)
-- [paris riche le smoky spark](https://music.allwomenstalk.com/lesser-known-amazing-singers-you-must-check-out/)
-- [subjects in music](https://music.allwomenstalk.com/surprising-subjects-for-a-musical/)
 - [Taylor Swift Shakes It off ...](https://celebs.allwomenstalk.com/taylor-swift-shakes-it-off/)
+- [subjects in music](https://music.allwomenstalk.com/surprising-subjects-for-a-musical/)
+- [paris riche le smoky spark](https://music.allwomenstalk.com/lesser-known-amazing-singers-you-must-check-out/)
 - [Music & Productivity: do They Go Hand in Hand? ...](https://music.allwomenstalk.com/music-productivity-do-they-go-hand-in-hand/)
 - [loreal le stylo smoky blinged brilliant](https://music.allwomenstalk.com/albums-coming-out-this-fall-worth-checking-out/)
-- [Sing a Little Song for Enormous Benefits ...](https://music.allwomenstalk.com/amazing-benefits-of-singing-that-will-impress-you/)
-- [Here's the Ultimate Playlist for Ladies in Love .....](https://love.allwomenstalk.com/adorable-songs-for-ladies-in-love-to-hear/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 R&B Albums You Should Own ...](https://allwomenstalk.com/7-rb-albums-you-should-own/)
 

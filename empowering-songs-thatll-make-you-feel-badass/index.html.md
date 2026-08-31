@@ -42,16 +42,16 @@ These songs are the definition of girl power. What other empowering songs do you
 
 ## Related Posts
 
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
 - [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
-- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
 - [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [7 Inspirational Rap Songs to Listen to when You're...](https://music.allwomenstalk.com/inspirational-rap-songs-to-listen-to-when-youre-feeling-down/)
 - [7 Amazing Breakup Songs That Know Just How You Fee...](https://music.allwomenstalk.com/amazing-breakup-songs-that-know-just-how-you-feel/)
 

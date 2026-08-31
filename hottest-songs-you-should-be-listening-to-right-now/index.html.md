@@ -101,15 +101,15 @@ Adele is queen. And looks amazing in this video.
 ## Related Posts
 
 - [songs about bad love](https://music.allwomenstalk.com/sexy-songs-about-liking-bad-boys/)
-- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
-- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
-- [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
 - [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
-- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
-- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
 - [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
-- [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
 - [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
+- [lyrics to confess to your crush](https://music.allwomenstalk.com/songs-to-send-your-crush-so-hell-get-the-hint/)
+- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
+- [top selling christmas songs ever](https://music.allwomenstalk.com/the-biggest-selling-christmas-songs-ever/)
+- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
+- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
+- [new album releases 2016](https://music.allwomenstalk.com/albums-were-already-eager-to-hear/)
 - [6 Hottest Celebrity Buzz ...](https://allwomenstalk.com/6-hottest-celebrity-buzz/)
 - [7 Things That Are Sexy Right Now ...](https://allwomenstalk.com/7-things-thats-sexy-right-now/)
 

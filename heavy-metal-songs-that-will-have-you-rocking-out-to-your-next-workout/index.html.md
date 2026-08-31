@@ -56,16 +56,16 @@ Hopefully you will find these songs as helpful to your workouts as I find them. 
 
 ## Related Posts
 
-- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
-- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
-- [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
-- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
-- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
-- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
 - [uncommon lullabies](https://music.allwomenstalk.com/cool-alternative-lullabies-your-little-one-will-love/)
-- [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
 - [the saddest song](https://music.allwomenstalk.com/popular-and-beautiful-songs-that-touch-your-soul/)
+- [best workout pump up songs](https://music.allwomenstalk.com/songs-to-pump-up-your-workout-playlist/)
+- [the best of the 80's](https://music.allwomenstalk.com/best-one-hit-wonders-of-the-80s-that-you-will-never-forget/)
+- [songs to sing in birthday party](https://music.allwomenstalk.com/songs-to-play-at-your-next-birthday-party/)
+- [most popular indie bands](https://music.allwomenstalk.com/awesome-indie-bands-worth-listening-to-this-summer/)
+- [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
+- [stylish music for video](https://music.allwomenstalk.com/super-cool-hipster-music-videos-thatll-brighten-your-day/)
 - [sad 90s rock songs](https://music.allwomenstalk.com/nostalgic-90s-college-rock-songs-that-take-you-back-in-time/)
+- [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
 - [8 Upbeat Songs to Work out to ...](https://weightloss.allwomenstalk.com/upbeat-songs-to-work-out-to/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 

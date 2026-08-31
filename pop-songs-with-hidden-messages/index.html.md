@@ -42,16 +42,16 @@ It’s crazy what artists can get away with when using double entendres and hidd
 
 ## Related Posts
 
-- [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
-- [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
-- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
-- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
+- [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
+- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
+- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
 - [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
 - [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
-- [female acoustic covers of popular songs](https://music.allwomenstalk.com/incredible-acoustic-covers-by-ed-sheeran/)
-- [songs for confidence](https://music.allwomenstalk.com/songs-that-will-inspire-confidence-in-you/)
+- [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
+- [songs related to school life](https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/)
 - [got me good cody simpson](https://music.allwomenstalk.com/awesome-acoustic-performances-by-cody-simpson/)
-- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
+- [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
+- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
 - [7 Katy Perry Songs I Love ...](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

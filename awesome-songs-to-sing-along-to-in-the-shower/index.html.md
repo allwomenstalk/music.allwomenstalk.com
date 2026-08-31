@@ -70,16 +70,16 @@ These are 7 fantastic songs to sing along to in the shower. Now, it’s your tur
 
 ## Related Posts
 
-- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
 - [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
 - [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
 - [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [songs for college](https://music.allwomenstalk.com/songs-every-college-student-should-appreciate/)
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
 - [7 Excellent Motivational and up-Lifting Songs ...](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [7 Best Songs from Commercials ...](https://allwomenstalk.com/7-best-songs-from-commercials/)
 

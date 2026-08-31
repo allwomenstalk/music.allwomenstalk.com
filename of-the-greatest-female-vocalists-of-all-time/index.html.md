@@ -57,15 +57,15 @@ These 7 ladies have changed the world through their music. Some of the women on 
 ## Related Posts
 
 - [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
-- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
-- [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
-- [quotes for women's history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
-- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
 - [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
-- [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
-- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
 - [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
+- [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
+- [quotes for women's history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
+- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
+- [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
+- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
 - [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [The 7 Most Inspiring Women Celebrities ...](https://allwomenstalk.com/the-7-most-inspiring-women-celebrities/)
 

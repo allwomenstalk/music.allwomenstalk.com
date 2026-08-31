@@ -50,16 +50,16 @@ I’m not sure I could pick a favorite … different days, different moods and a
 
 ## Related Posts
 
-- [proverb love](https://love.allwomenstalk.com/meaningful-love-proverbs-from-around-the-world/)
-- [romantic fall date ideas](https://love.allwomenstalk.com/the-most-romantic-dates-you-could-go-on-during-fall/)
 - [popsicle stick date night ideas](https://love.allwomenstalk.com/date-night-ideas-for-crafty-couples/)
-- [art types of kisses](https://love.allwomenstalk.com/the-most-romantic-types-of-kisses/)
 - [the look of love in a man's eyes](https://love.allwomenstalk.com/things-you-should-feel-when-you-look-into-your-lovers-eyes/)
-- [couple. poses](https://love.allwomenstalk.com/the-cutest-couple-poses-to-use-on-instagram/)
-- [bf video news](https://love.allwomenstalk.com/videos-you-and-your-bf-should-make-as-mementos/)
-- [list of romantic gestures](https://love.allwomenstalk.com/romantic-gestures-to-put-on-your-to-do-list/)
-- [fun date ideas for guys](https://love.allwomenstalk.com/man-approved-date-ideas/)
+- [romantic fall date ideas](https://love.allwomenstalk.com/the-most-romantic-dates-you-could-go-on-during-fall/)
+- [art types of kisses](https://love.allwomenstalk.com/the-most-romantic-types-of-kisses/)
 - [julia roberts life beliefs and lessons learned](https://movies.allwomenstalk.com/lessons-in-love-from-julia-roberts-movies/)
+- [list of romantic gestures](https://love.allwomenstalk.com/romantic-gestures-to-put-on-your-to-do-list/)
+- [couple. poses](https://love.allwomenstalk.com/the-cutest-couple-poses-to-use-on-instagram/)
+- [proverb love](https://love.allwomenstalk.com/meaningful-love-proverbs-from-around-the-world/)
+- [bf video news](https://love.allwomenstalk.com/videos-you-and-your-bf-should-make-as-mementos/)
+- [fun date ideas for guys](https://love.allwomenstalk.com/man-approved-date-ideas/)
 - [8 Romantic Slow-Dancing Songs ...](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
 - [Romantic Quotes That Say All My Love for You ...](https://allwomenstalk.com/20-inspiring-quotes-about-love/)
 

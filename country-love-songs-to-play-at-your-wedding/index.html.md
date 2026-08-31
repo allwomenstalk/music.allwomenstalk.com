@@ -42,16 +42,16 @@ I hope you enjoyed my list of country wedding songs. Do you have a favorite wedd
 
 ## Related Posts
 
-- [engagement ring photoshoot ideas](https://wedding.allwomenstalk.com/unique-engagement-photo-shoot-ideas/)
 - [capture memories](https://wedding.allwomenstalk.com/unique-ways-to-capture-memories-at-your-wedding/)
-- [how to have small wedding](https://wedding.allwomenstalk.com/things-to-consider-when-you-only-want-a-small-wedding/)
-- [china bridal](https://wedding.allwomenstalk.com/great-china-patterns-for-your-bridal-registry/)
-- [wedding reading from literature](https://wedding.allwomenstalk.com/beautiful-wedding-readings-you-should-check-out/)
+- [how to respond to are you married](https://love.allwomenstalk.com/fun-ways-to-answer-questions-about-when-youre-getting-married/)
+- [engagement ring photoshoot ideas](https://wedding.allwomenstalk.com/unique-engagement-photo-shoot-ideas/)
 - [comparing your wife to others](https://wedding.allwomenstalk.com/reasons-comparing-your-wedding-to-others-is-not-a-good-idea/)
 - [uk wedding gift list](https://wedding.allwomenstalk.com/uk-stores-for-your-wedding-list/)
+- [how to have small wedding](https://wedding.allwomenstalk.com/things-to-consider-when-you-only-want-a-small-wedding/)
+- [china bridal](https://wedding.allwomenstalk.com/great-china-patterns-for-your-bridal-registry/)
 - [mountain casual attire](https://wedding.allwomenstalk.com/common-reasons-for-unhappy-wedding-guests/)
 - [creative social media creative engagement announce...](https://wedding.allwomenstalk.com/unique-ways-to-announce-your-engagement/)
-- [how to respond to are you married](https://love.allwomenstalk.com/fun-ways-to-answer-questions-about-when-youre-getting-married/)
+- [wedding reading from literature](https://wedding.allwomenstalk.com/beautiful-wedding-readings-you-should-check-out/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [4 Fun Songs to Walk down the Aisle to ...](https://wedding.allwomenstalk.com/fun-songs-to-walk-down-the-aisle-to/)
 

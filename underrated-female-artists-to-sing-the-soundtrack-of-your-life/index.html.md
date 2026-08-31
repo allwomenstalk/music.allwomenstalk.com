@@ -56,16 +56,16 @@ It will always baffle me why so many talented artists go unnoticed for almost al
 
 ## Related Posts
 
-- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
-- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
 - [john mayer sad songs](https://music.allwomenstalk.com/amazing-john-mayer-songs-ill-never-get-tired-of/)
-- [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
-- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
-- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
-- [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
-- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
-- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
 - [hard rock pump up songs](https://music.allwomenstalk.com/workout-songs-that-will-seriously-get-you-pumped/)
+- [greg holden the lost boy chords](https://music.allwomenstalk.com/amazing-songs-from-tv-shows-that-youve-got-to-listen-to/)
+- [feel good musicals](https://movies.allwomenstalk.com/fun-musicals-that-i-love-and-you-will-too/)
+- [hipster haven](https://travel.allwomenstalk.com/hipster-havens-to-get-your-groove-on/)
+- [rock alternatives](https://music.allwomenstalk.com/alternative-rock-bands-you-have-to-check-out/)
+- [music artists everyone should know](https://music.allwomenstalk.com/more-indie-artists-you-should-be-listening-to/)
+- [taylor swift autotune](https://music.allwomenstalk.com/amazing-singers-who-really-dont-need-autotune/)
+- [lee macdougall](https://music.allwomenstalk.com/songs-by-lee-macdougall-that-you-have-to-listen-to/)
+- [biggest edm artists](https://music.allwomenstalk.com/amazing-edm-artists-youve-got-to-listen-to/)
 - [The 20 Songs That Would Be on the Soundtrack to My...](https://allwomenstalk.com/the-20-songs-that-would-be-on-the-soundtrack-to-my-life/)
 - [7 Best Movie Soundtracks ...](https://allwomenstalk.com/7-best-movie-soundtracks/)
 

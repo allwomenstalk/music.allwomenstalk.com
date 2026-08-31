@@ -69,16 +69,16 @@ We can all agree that getting to the gym and rocking it can be difficult at time
 
 ## Related Posts
 
-- [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
+- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
 - [fire damce](https://music.allwomenstalk.com/simple-songs-anyone-can-dance-to-at-a-party/)
-- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
-- [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
 - [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [90's duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
 - [calming rock songs](https://music.allwomenstalk.com/best-songs-to-keep-you-calm-on-an-airplane/)
-- [arab hot song](https://music.allwomenstalk.com/arabic-songs-to-rock-out-to-this-summer/)
-- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
 - [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
+- [amazed video](https://music.allwomenstalk.com/intriguing-music-video-concepts-that-you-will-be-amazed-by/)
+- [best rock songs 90s](https://music.allwomenstalk.com/amazing-rock-songs-of-the-90s/)
+- [who sang instant replay](https://music.allwomenstalk.com/fun-songs-from-matt-kim-that-should-be-on-instant-replay/)
+- [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
 - [8 Upbeat Songs to Work out to ...](https://weightloss.allwomenstalk.com/upbeat-songs-to-work-out-to/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 

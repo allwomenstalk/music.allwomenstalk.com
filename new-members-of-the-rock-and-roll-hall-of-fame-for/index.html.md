@@ -52,15 +52,15 @@ I realize many of the inductees to the Rock and Roll Hall of Fame in 2014 will n
 
 ## Related Posts
 
+- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
+- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
+- [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
+- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
+- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
 - [celebrities with binge eating](https://celebs.allwomenstalk.com/celebrities-who-have-battled-eating-disorders/)
 - [who is a triple threat](https://celebs.allwomenstalk.com/of-the-biggest-triple-threats-in-hollywood/)
-- [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
-- [roman josi hair](https://celebs.allwomenstalk.com/gorgeous-athletes-to-watch-for-at-the-olympics/)
 - [celebrities that own companies](https://celebs.allwomenstalk.com/celebrities-who-started-their-own-companies/)
-- [josh peck aging](https://celebs.allwomenstalk.com/hysterical-nickelodeon-actors-who-grew-up-to-be-hot/)
-- [why did danny leave the mindy project](https://hair.allwomenstalk.com/celebrities-who-tried-a-pixie-cut/)
-- [people that look like disney characters](https://celebs.allwomenstalk.com/celebrities-who-look-like-disney-characters-from-animated-movies/)
-- [celebrities downfall](https://celebs.allwomenstalk.com/things-we-can-learn-from-the-downfall-of-celebrities/)
+- [celebrities who currently live in kentucky](https://celebs.allwomenstalk.com/celebrities-who-are-originally-from-kentucky/)
 - [most famous redheads](https://celebs.allwomenstalk.com/famous-redheads-and-their-amazing-careers/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Celebrities Who Are Rocking Their Single Status ...](https://allwomenstalk.com/7-celebrities-who-are-rocking-their-single-status/)

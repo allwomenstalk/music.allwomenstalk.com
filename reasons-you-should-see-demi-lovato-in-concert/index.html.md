@@ -42,15 +42,15 @@ Demi Lovato holds amazing concerts that you should definitely get yourself out t
 
 ## Related Posts
 
-- [emo adam lambert](https://celebs.allwomenstalk.com/reasons-im-obsessed-with-adam-lambert/)
-- [francofest](https://movies.allwomenstalk.com/reasons-why-franco-fest-was-the-best-thing-to-have-happened-in-a-while/)
-- [blake lively best friend](https://celebs.allwomenstalk.com/reasons-why-blake-lively-would-make-the-perfect-bff/)
 - [is ghost adventures fake](https://movies.allwomenstalk.com/reasons-i-love-watching-ghost-adventures/)
+- [francofest](https://movies.allwomenstalk.com/reasons-why-franco-fest-was-the-best-thing-to-have-happened-in-a-while/)
+- [lupita nyong'o ethnicity](https://celebs.allwomenstalk.com/reasons-why-we-love-lupita-nyongo/)
+- [emo adam lambert](https://celebs.allwomenstalk.com/reasons-im-obsessed-with-adam-lambert/)
 - [7 Awesome Reasons to Love Madelaine Hasson ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-madelaine-hasson/)
+- [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
 - [who is your role model ?](https://celebs.allwomenstalk.com/reasons-marilyn-monroe-is-a-great-role-model/)
 - [fifth harmony better together lyrics](https://music.allwomenstalk.com/reasons-you-should-be-a-fifth-harmony-fan/)
-- [willow summers actor](https://movies.allwomenstalk.com/reasons-why-buffy-summers-is-the-best-female-tv-character-of-all-time/)
-- [lupita nyong'o ethnicity](https://celebs.allwomenstalk.com/reasons-why-we-love-lupita-nyongo/)
+- [blake lively best friend](https://celebs.allwomenstalk.com/reasons-why-blake-lively-would-make-the-perfect-bff/)
 - [what is a daemon in the golden compass](https://books.allwomenstalk.com/reasons-i-found-the-golden-compass-trilogy-fascinating/)
 - [5 Reasons You'll like the Twilight Movie ...](https://twilight.allwomenstalk.com/5-reasons-youll-like-the-twilight-movie/)
 - [5 Reasons to Watch Breaking Dawn in Theatres ...](https://twilight.allwomenstalk.com/5-reasons-to-watch-breaking-dawn-in-theatres/)

@@ -43,15 +43,15 @@ I am in love with each of these surprising musical collaborations. I love when a
 ## Related Posts
 
 - [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
-- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
 - [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
-- [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
-- [best albums of 90's](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
-- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
-- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
+- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
 - [disney villains singing](https://music.allwomenstalk.com/songs-sung-by-disney-villains-we-cant-help-but-love/)
 - [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
+- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
+- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
+- [best albums of 90's](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
+- [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [7 Brilliant Songwriters ...](https://allwomenstalk.com/brilliant-songwriters/)
 

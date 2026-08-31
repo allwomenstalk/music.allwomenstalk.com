@@ -82,15 +82,15 @@ Now seriously, share your favorite beats! What's the smartest rap song you've ev
 
 ## Related Posts
 
-- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
-- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
-- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
-- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
+- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
 - [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
-- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
-- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
+- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
+- [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
+- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
+- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
+- [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
 - [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
 - [7 Great Country Songs ...](https://allwomenstalk.com/7-great-country-songs/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)

@@ -54,16 +54,16 @@ That sums up my list for successful artists that came from American Idol. Don’
 
 ## Related Posts
 
+- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
+- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
 - [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
-- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
 - [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
-- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
-- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
+- [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 

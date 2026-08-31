@@ -46,16 +46,16 @@ Yes, Joan gets two entries because let’s face it, she rules.
 
 ## Related Posts
 
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
-- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
 - [christmas songs nostalgic](https://music.allwomenstalk.com/christmas-songs-from-your-childhood/)
 - [disney songs list a to z](https://apps.allwomenstalk.com/disney-song-lyrics-to-use-as-instagram-captions/)
-- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
-- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
-- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
 - [heartbreaks song](https://music.allwomenstalk.com/rock-songs-for-every-stage-of-a-breakup/)
+- [red shoe lover](https://shoes.allwomenstalk.com/what-is-it-about-shoes/)
 - [less popular christmas songs](https://music.allwomenstalk.com/non-cheesy-christmas-playlist/)
+- [motivation playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-3/)
+- [soft easy listening music](https://music.allwomenstalk.com/easy-listening-playlist/)
 - [motivation music playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-4/)
+- [lzzy hale high heels](https://music.allwomenstalk.com/goddesses-of-rock/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
 - [8 Amazing Serge Gainsbourg Songs ...](https://allwomenstalk.com/8-amazing-serge-gainsbourg-songs/)
 - [7 1980s Girl Rockers I Love ...](https://allwomenstalk.com/7-1980s-girl-rockers-i-love/)
 

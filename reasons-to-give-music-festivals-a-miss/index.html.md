@@ -42,13 +42,13 @@ These are some of the reasons I will not be undergoing the agonizing wait for fe
 
 ## Related Posts
 
-- [reasons to change last name](https://love.allwomenstalk.com/reasons-for-and-against-changing-your-name-after-marriage/)
-- [definition of friendship](https://lifestyle.allwomenstalk.com/reasons-you-need-friends-more-than-a-partner/)
 - [never start smoking](https://health.allwomenstalk.com/reasons-why-you-should-never-start-smoking/)
-- [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
+- [definition of friendship](https://lifestyle.allwomenstalk.com/reasons-you-need-friends-more-than-a-partner/)
 - [health reasons to put down phone](https://inspiration.allwomenstalk.com/reasons-to-put-your-phone-down/)
-- [he didn't call me back](https://love.allwomenstalk.com/reasons-he-hasnt-called-yet/)
 - [why marriage counseling fails](https://love.allwomenstalk.com/main-reasons-why-couples-therapy-fails/)
+- [he didn't call me back](https://love.allwomenstalk.com/reasons-he-hasnt-called-yet/)
+- [to keep up with the joneses](https://inspiration.allwomenstalk.com/reasons-to-stop-keeping-up-with-the-joneses/)
+- [reasons to change last name](https://love.allwomenstalk.com/reasons-for-and-against-changing-your-name-after-marriage/)
 - [26 and still single](https://love.allwomenstalk.com/reasons-why-you-are-still-single/)
 - [what to do when your man is giving you attitude](https://love.allwomenstalk.com/reasons-why-your-boyfriend-is-being-mean/)
 - [is it wrong to cheat back](https://love.allwomenstalk.com/reasons-why-you-shouldnt-take-back-a-cheater/)

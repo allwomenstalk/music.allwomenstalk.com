@@ -34,16 +34,16 @@ The playlist is now complete and now you can go ahead and enjoy some great music
 
 ## Related Posts
 
-- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
-- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
-- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
-- [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
-- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
 - [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
+- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
+- [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
+- [fearless girls](https://music.allwomenstalk.com/fearless-songs-for-fearless-females/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
+- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
+- [korean pop music groups](https://music.allwomenstalk.com/k-pop-bands-you-should-know-about/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
 - [8 Upbeat Songs to Work out to ...](https://weightloss.allwomenstalk.com/upbeat-songs-to-work-out-to/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 

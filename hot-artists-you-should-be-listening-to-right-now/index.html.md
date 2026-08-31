@@ -56,16 +56,16 @@ Julia Michaels, being known for her amazing song writing skills for artists such
 
 ## Related Posts
 
+- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
+- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
+- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
+- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
+- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
+- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
+- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
+- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
 - [delicate song by taylor swift](https://music.allwomenstalk.com/we-are-missing-the-whole-point-behind-taylor-swifts-delicate-music-video/)
 - [tied string](https://inspiration.allwomenstalk.com/hearts-tied-with-string-by-erin-hanson/)
-- [turning 20 songs](https://music.allwomenstalk.com/songs-turning-20-in-2018/)
-- [britney spears alle alben](https://music.allwomenstalk.com/my-ranking-of-britney-spears-albums/)
-- [songs to motivate you to work](https://music.allwomenstalk.com/motivating-songs-to-add-to-your-gym-playlist/)
-- [cardi old teeth](https://music.allwomenstalk.com/lyrics-to-bodak-yellow-explained/)
-- [side chick anthems](https://music.allwomenstalk.com/girl-power-anthems-2/)
-- [exercise playlist](https://music.allwomenstalk.com/great-songs-to-add-to-a-workout-playlist-5/)
-- [all about a woman](https://music.allwomenstalk.com/songs-that-celebrate-being-a-woman/)
-- [ed sheeran outfit inspo](https://music.allwomenstalk.com/review-of-ed-sheeran-concert-in-mumbai/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [8 Modern Albums You Should Listen to ...](https://allwomenstalk.com/8-modern-albums-you-should-listen-to/)
 

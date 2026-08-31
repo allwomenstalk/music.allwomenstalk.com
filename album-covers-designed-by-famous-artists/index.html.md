@@ -56,16 +56,16 @@ These album covers are truly pieces of art. Each of these covers are iconic for 
 
 ## Related Posts
 
-- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
-- [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
-- [divergent soundtrack tracklist](https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/)
-- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
-- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
-- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
-- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
 - [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
+- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
+- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
+- [divergent soundtrack tracklist](https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/)
+- [oblivion bastille lyrics](https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/)
+- [addicting songs](https://music.allwomenstalk.com/unexpectedly-addictive-songs-that-may-get-stuck-in-your-head-this-spring/)
+- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
+- [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
 - [7 Cool Celebrity Tattoos ...](https://allwomenstalk.com/7-cool-celebrity-tattoos/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 

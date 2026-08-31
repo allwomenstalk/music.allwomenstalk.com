@@ -50,15 +50,15 @@ I know many people will be traveling this summer and looking for ways to keep ca
 ## Related Posts
 
 - [90's duo singers](https://music.allwomenstalk.com/awesome-musical-duos-i-love-and-you-will-too/)
-- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
 - [songs about being stressed at work](https://music.allwomenstalk.com/songs-to-de-stress-to-that-may-work-for-you/)
 - [songs about fall country](https://music.allwomenstalk.com/country-songs-for-fall-that-need-to-be-on-your-playlist/)
-- [let's go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
-- [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
-- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
 - [best country songs for summer](https://music.allwomenstalk.com/awesome-country-songs-for-the-summer-that-you-must-add-to-your-playlist/)
-- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
+- [let's go to the mall just dance](https://music.allwomenstalk.com/songs-on-tv-shows-that-should-be-real/)
 - [best background music for interviews](https://music.allwomenstalk.com/songs-to-listen-to-on-your-way-to-an-interview-to-boost-your-confidence/)
+- [dance with me blink 182 genius](https://music.allwomenstalk.com/genius-music-videos-of-all-time-that-never-get-boring/)
+- [bands like ok go](https://music.allwomenstalk.com/amazing-indie-bands-that-should-be-in-your-ipod-right-now/)
+- [best workout albums](https://music.allwomenstalk.com/best-musical-artists-to-listens-to-blast-while-sweating-it-out/)
+- [zbmfvloqr4m -site:youtube.com](https://music.allwomenstalk.com/songs-that-celebrities-work-out-to-that-you-will-love-too/)
 - [7 Ways to Pass the Time on an 11 Hour Flight ...](https://travel.allwomenstalk.com/7-ways-to-pass-the-time-on-an-11-hour-flight/)
 - [7 Fun Things to do on a Boring Plane Ride ...](https://allwomenstalk.com/7-fun-things-to-do-on-a-boring-plane-ride/)
 

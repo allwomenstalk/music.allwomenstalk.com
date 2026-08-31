@@ -62,16 +62,16 @@ Which are your **favorite summer songs**? Share with me!
 
 ## Related Posts
 
-- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
-- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
-- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
-- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
-- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
 - [sad song songs](https://music.allwomenstalk.com/songs-for-when-youre-sad/)
-- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
-- [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
+- [a song that gives you hope](https://music.allwomenstalk.com/songs-to-give-you-hope/)
+- [2 girls procrastinating](https://music.allwomenstalk.com/the-best-songs-to-boost-your-motivation/)
 - [when you've had a bad day song](https://music.allwomenstalk.com/uplifting-songs-to-listen-to-when-youre-having-a-bad-day/)
 - [my freshman year film](https://music.allwomenstalk.com/the-story-of-my-freshman-year-in-a-playlist/)
+- [mahogany song](https://music.allwomenstalk.com/songs-from-the-mahogany-sessions/)
+- [ke$ha discography](https://music.allwomenstalk.com/review-of-keshas-new-album-rainbow/)
+- [songs to get down to](https://music.allwomenstalk.com/best-songs-for-hotter-sex/)
+- [best song for relaxation](https://music.allwomenstalk.com/songs-for-ultimate-relaxation/)
+- [80s hair bands](https://music.allwomenstalk.com/best-80s-rock-songs-by-female-artists/)
 - [8 Top Work out Songs for Spring ...](https://health.allwomenstalk.com/top-work-out-songs-for-spring/)
 - [10 Songs for Fall 2012 That Should Be on Your Play...](https://lifestyle.allwomenstalk.com/songs-for-fall-that-should-be-on-your-playlist/)
 

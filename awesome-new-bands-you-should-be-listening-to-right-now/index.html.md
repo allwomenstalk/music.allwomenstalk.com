@@ -42,15 +42,15 @@ There you have it! These seven bands are some of my personal faves that I think 
 
 ## Related Posts
 
-- [classic disco moves](https://music.allwomenstalk.com/classic-dance-moves-for-your-disco-pleasure/)
-- [king charles singer](https://music.allwomenstalk.com/incredible-uk-artists-that-i-cant-stop-listening-to/)
-- [7 Must-See Concerts in 2014 ...](https://music.allwomenstalk.com/must-see-concerts-in/)
-- [7 Ways Music Impacts Your Life beyond Your Headpho...](https://music.allwomenstalk.com/ways-music-impacts-your-life-beyond-your-headphones/)
-- [7 Captivating Orchestral Pieces Perfect for Girls ...](https://music.allwomenstalk.com/orchestral-pieces-for-classical-music-novices/)
 - [7 Things to Expect from Miley's Bangerz Tour ...](https://music.allwomenstalk.com/things-to-expect-from-mileys-bangerz-tour/)
+- [king charles singer](https://music.allwomenstalk.com/incredible-uk-artists-that-i-cant-stop-listening-to/)
 - [classical music pick up lines](https://music.allwomenstalk.com/classical-musicians-you-can-listen-to-even-today/)
 - [7 Upcoming Albums to Look Forward to ...](https://music.allwomenstalk.com/upcoming-albums-to-look-forward-to/)
+- [classic disco moves](https://music.allwomenstalk.com/classic-dance-moves-for-your-disco-pleasure/)
+- [7 Captivating Orchestral Pieces Perfect for Girls ...](https://music.allwomenstalk.com/orchestral-pieces-for-classical-music-novices/)
 - [7 Best Songs to Start Your Morning to ...](https://music.allwomenstalk.com/best-songs-to-start-your-morning-to/)
+- [7 Must-See Concerts in 2014 ...](https://music.allwomenstalk.com/must-see-concerts-in/)
+- [7 Ways Music Impacts Your Life beyond Your Headpho...](https://music.allwomenstalk.com/ways-music-impacts-your-life-beyond-your-headphones/)
 - [7 Great 80's Musical Acts I Still Can't Get Enough...](https://music.allwomenstalk.com/great-80s-musical-acts-i-still-cant-get-enough-of/)
 - [10 Top Bands to Listen to ...](https://allwomenstalk.com/top-10-bands-to-listen-to/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)

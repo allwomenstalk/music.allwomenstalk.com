@@ -95,15 +95,15 @@ These best bands for Halloween will get you ready for the night. Play these song
 
 ## Related Posts
 
-- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
-- [halloween safety tips for adults](https://lifestyle.allwomenstalk.com/halloween-safety-tips-to-keep-in-mind-this-year/)
-- [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
-- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
-- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
-- [spider paper plate craft](https://parenting.allwomenstalk.com/cute-halloween-craft-ideas-for-kids/)
-- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
 - [what to do with friends on halloween](https://lifestyle.allwomenstalk.com/fun-and-cheap-things-to-do-on-halloween-if-youre-broke/)
+- [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
+- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
+- [spider paper plate craft](https://parenting.allwomenstalk.com/cute-halloween-craft-ideas-for-kids/)
+- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
+- [halloween movie night aesthetic](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-halloween-if-dressing-up-isnt-your-thing/)
+- [halloween safety tips for adults](https://lifestyle.allwomenstalk.com/halloween-safety-tips-to-keep-in-mind-this-year/)
 - [where's waldo dog costume](https://lifestyle.allwomenstalk.com/funny-and-adorable-halloween-costumes-for-dogs/)
+- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
 - [halloween house diy](https://diy.allwomenstalk.com/adorable-and-super-easy-diy-halloween-decorations/)
 - [7 Fun Halloween Costumes Your Kids Will Love ...](https://parenting.allwomenstalk.com/fun-halloween-costumes-your-kids-will-love/)
 - [7 Clever Halloween Costumes for Boys ...](https://allwomenstalk.com/7-clever-halloween-costumes-for-boys/)
