@@ -3,7 +3,7 @@ title: "7 Most Anticipated Albums of 2014 ..."
 description: "Ultraviolence – Lana Del Rey; TBA – Adele; TBA – Kendrick Lamar; TBA – Jack White; TBA – Kanye West; More ..."
 url: "https://music.allwomenstalk.com/most-anticipated-albums-of-2014/"
 category: "music"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Most Anticipated Albums of 2014 ...
@@ -56,16 +56,16 @@ I am looking forward to the release of each of these artists' albums in the comi
 
 ## Related Posts
 
-- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
 - [songs by bowling for soup](https://funny.allwomenstalk.com/bowling-for-soup-songs-that-guarantee-a-laugh/)
+- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
+- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
+- [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
+- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
 - [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
-- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [00s albums](https://music.allwomenstalk.com/of-the-most-influential-pop-albums-released-in-the-00s/)
-- [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
-- [chick flick films](https://music.allwomenstalk.com/chick-flick-movie-soundtracks-you-need-on-your-ipod/)
 - [7 Love Songs of 2011 ...](https://love.allwomenstalk.com/love-songs-of/)
 - [7 Great Albums to Hear ...](https://allwomenstalk.com/7-great-albums-to-hear/)
 
