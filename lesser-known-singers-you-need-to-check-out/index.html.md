@@ -3,7 +3,7 @@ title: "7 Little Known Musicians and Obscure Music Artists to Discover"
 description: "Stu Larsen; Amos Lee; Ashleigh Mannix; Basement Birds; Belle & Sebastian; More ..."
 url: "https://music.allwomenstalk.com/lesser-known-singers-you-need-to-check-out/"
 category: "music"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # 7 Little Known Musicians and Obscure Music Artists to Discover
@@ -54,15 +54,15 @@ I hope you enjoy having a listen to these **little known musicians**! I absolute
 
 ## Related Posts
 
-- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
-- [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
-- [songs for the spring](https://music.allwomenstalk.com/unique-songs-to-dance-to-this-spring/)
-- [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
-- [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
-- [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
-- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
 - [breakup songs for guys](https://music.allwomenstalk.com/upbeat-songs-to-help-you-get-over-a-guy/)
+- [songs for the spring](https://music.allwomenstalk.com/unique-songs-to-dance-to-this-spring/)
+- [new politics song](https://music.allwomenstalk.com/amazing-live-performances-by-new-politics/)
+- [mood music examples](https://music.allwomenstalk.com/best-pieces-of-music-to-suit-different-moods/)
+- [let it go parodies](https://music.allwomenstalk.com/song-parodies-to-brighten-your-day/)
+- [rixton speakerphone](https://music.allwomenstalk.com/incredible-live-performances-by-rixton-thatll-make-you-a-fan/)
 - [meaning of if you seek amy](https://music.allwomenstalk.com/pop-songs-with-hidden-messages/)
+- [number 1 single of all time](https://music.allwomenstalk.com/best-selling-singles-of-all-time/)
+- [song excited](https://music.allwomenstalk.com/songs-to-get-you-excited-for-the-summer/)
 - [songs to feel happy](https://music.allwomenstalk.com/upbeat-songs-that-will-put-you-in-a-good-mood/)
 - [7 up and Coming Singers You Should Know about ...](https://lifestyle.allwomenstalk.com/up-and-coming-singers-you-should-know-about/)
 - [10 Amazing Female Singers ...](https://celebs.allwomenstalk.com/amazing-female-singers/)
