@@ -3,7 +3,7 @@ title: "7 Songs That'll Tell Your Ex to Go \"Love\" Himself ..."
 description: "Love Yourself by Justin Bieber; FU by Miley Cyrus; Gunpowder and Lead by Miranda Lambert; Forget You by Cee Lo Green; A Friendly Goodbye by Bowling for Soup; More ..."
 url: "https://music.allwomenstalk.com/songs-thatll-tell-your-ex-to-go-love-himself/"
 category: "music"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 7 Songs That'll Tell Your Ex to Go "Love" Himself ...
@@ -42,16 +42,16 @@ Unfortunately, exes can be cruel. That's why songs like these exist. What other 
 
 ## Related Posts
 
-- [bloodstream stateless movie](https://music.allwomenstalk.com/romantic-songs-to-listen-to-this-valentines-day/)
-- [epic music 2015](https://music.allwomenstalk.com/epic-music-videos-thatll-never-stop-being-awesome/)
-- [irish bands](https://music.allwomenstalk.com/the-best-irish-bands-to-listen-to-on-st-patricks-day/)
-- [fit in song](https://music.allwomenstalk.com/this-website-will-tell-you-which-song-fits-your-face/)
-- [breakup songs for girls](https://music.allwomenstalk.com/angry-breakup-songs-thatll-help-you-express-your-pain/)
-- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
-- [summer pardi net worth](https://music.allwomenstalk.com/add-these-hot-songs-to-your-playlist-this-week/)
-- [rap songs about resilience](https://music.allwomenstalk.com/intelligent-rap-songs-that-will-make-you-think/)
-- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [prince video songs](https://music.allwomenstalk.com/prince-songs-every-millennial-should-know/)
+- [summer pardi net worth](https://music.allwomenstalk.com/add-these-hot-songs-to-your-playlist-this-week/)
+- [breakup songs for girls](https://music.allwomenstalk.com/angry-breakup-songs-thatll-help-you-express-your-pain/)
+- [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
+- [fit in song](https://music.allwomenstalk.com/this-website-will-tell-you-which-song-fits-your-face/)
+- [songs with 17 in them](https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/)
+- [rap songs about resilience](https://music.allwomenstalk.com/intelligent-rap-songs-that-will-make-you-think/)
+- [irish bands](https://music.allwomenstalk.com/the-best-irish-bands-to-listen-to-on-st-patricks-day/)
+- [epic music 2015](https://music.allwomenstalk.com/epic-music-videos-thatll-never-stop-being-awesome/)
+- [bloodstream stateless movie](https://music.allwomenstalk.com/romantic-songs-to-listen-to-this-valentines-day/)
 - [7 Devious Ways to Get over an Ex ...](https://love.allwomenstalk.com/devious-ways-to-get-over-an-ex/)
 - [7 Ways to Get Your Ex Back ...](https://allwomenstalk.com/7-ways-to-get-your-ex-back/)
 
