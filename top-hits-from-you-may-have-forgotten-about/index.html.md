@@ -3,7 +3,7 @@ title: "10 Top Hits from 1984 You May Have Forgotten about ..."
 description: "What’s Love Got to do with It – Tina Turner; Footloose – Kenny Loggins; Say Say Say – Paul McCartney Feat. Michael Jackson; Jump – Van Halen; Girls Just Wanna Have Fun – Cyndi Lauper; More ..."
 url: "https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/"
 category: "music"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 10 Top Hits from 1984 You May Have Forgotten about ...
@@ -54,16 +54,16 @@ Listening to these classics from 1984 has me reminiscing about other great songs
 
 ## Related Posts
 
-- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
 - [qp6jdlqf23g -site:youtube.com](https://music.allwomenstalk.com/most-inspirational-rock-songs-ever/)
-- [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
-- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
-- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
-- [unpopular artist](https://music.allwomenstalk.com/lesser-known-singers-you-need-to-check-out/)
+- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
 - [listen to classical music while sleeping](https://music.allwomenstalk.com/reasons-you-should-listen-to-classical-music/)
-- [breakup songs for guys](https://music.allwomenstalk.com/upbeat-songs-to-help-you-get-over-a-guy/)
-- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
+- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
+- [retro soundtrack](https://music.allwomenstalk.com/songs-with-a-retro-feel-to-take-you-back-in-time/)
 - [disney villains singing](https://music.allwomenstalk.com/songs-sung-by-disney-villains-we-cant-help-but-love/)
+- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
+- [breakup songs for guys](https://music.allwomenstalk.com/upbeat-songs-to-help-you-get-over-a-guy/)
+- [unpopular artist](https://music.allwomenstalk.com/lesser-known-singers-you-need-to-check-out/)
+- [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
 - [10 Top Unbelievably Awesome 80s Songs I Love ...](https://lifestyle.allwomenstalk.com/top-unbelievably-awesome-80s-songs-i-love/)
 - [Top 10 Songs of the 90's ...](https://lifestyle.allwomenstalk.com/top-songs-of-the-90s/)
 

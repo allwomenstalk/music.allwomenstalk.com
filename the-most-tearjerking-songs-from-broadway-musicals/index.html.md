@@ -3,7 +3,7 @@ title: "the Most Tearjerking Songs from Broadway Musicals ..."
 description: "Somewhere; Last Night of the World; Tell Me It’s Not True; Send in the Clowns; As Long as He Needs Me; More ..."
 url: "https://music.allwomenstalk.com/the-most-tearjerking-songs-from-broadway-musicals/"
 category: "music"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # the Most Tearjerking Songs from Broadway Musicals ...
@@ -116,16 +116,16 @@ So, please tell me – your favorites?
 
 ## Related Posts
 
-- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
-- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
+- [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
 - [popular songs about angels](https://music.allwomenstalk.com/the-songs-victoria-secret-angels-work-out-to/)
+- [the memories bring back you](https://music.allwomenstalk.com/songs-that-will-bring-back-memories/)
 - [thanksgiving song mary chapin carpenter sheet musi...](https://music.allwomenstalk.com/its-not-time-for-xmas-music-yet-thanksgiving-songs-to-listen-to/)
-- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
-- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
 - [rae srummed](https://music.allwomenstalk.com/hottest-songs-you-should-be-listening-to-right-now/)
 - [best pop love song](https://music.allwomenstalk.com/love-songs-from-the-early-00s-you-must-listen-to-now/)
 - [sing in car](https://music.allwomenstalk.com/crank-up-the-volume-coz-singing-in-the-car-is-good-for-you/)
-- [breakup sad songs](https://music.allwomenstalk.com/songs-for-when-you-want-to-wallow-in-a-breakup/)
+- [awesome pop songs](https://music.allwomenstalk.com/the-best-list-of-pop-music-songs-for-your-next-playlist/)
+- [daddy dance with me krystal keith lyrics](https://wedding.allwomenstalk.com/you-need-to-hear-the-sweetest-dance-songs-for-fathers-and-daughters/)
+- [love songs about november](https://music.allwomenstalk.com/songs-to-snuggle-up-and-listen-to-this-november/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
 

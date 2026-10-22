@@ -3,7 +3,7 @@ title: "Songs That'll Make You Think of Your Crush ..."
 description: "Crush by Mandy Moore; Pumpkin Soup by Kate Nash; Crush by David Archuleta; Falling for You by Colbie Caillat; What I like about You by the Romantics; More ..."
 url: "https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/"
 category: "music"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # Songs That'll Make You Think of Your Crush ...
@@ -42,16 +42,16 @@ Whether or not you end up with your crush, you're free to daydream about him as 
 
 ## Related Posts
 
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
 - [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
 - [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [A Little Bit of a Crush, Now* ...](https://allwomenstalk.com/a-little-bit-of-a-crush-now/)
 - [You Can't Stop Thinking about Him ...](https://allwomenstalk.com/you-cant-stop-thinking-about-him/)
 
