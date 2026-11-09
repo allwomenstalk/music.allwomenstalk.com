@@ -1,9 +1,9 @@
 ---
 title: "17 Songs to Blast for the Days You're Just over It All ..."
-description: "Descendents – “Everything Sux”; The Band Perry – “Done”; Lily Allen – “Fuck You”; Yo Preston – “Love Yourself Vs. Fuck Yourself”; Bowling for Soup – “a Friendly Goodbye”; More ..."
+description: "Descendents – “Everything Sux”; The Band Perry – “Done”; Lily Allen – “Fuck You”; Yo Preston – “Love Yourself Vs. Fuck Yourself”"
 url: "https://music.allwomenstalk.com/songs-to-listen-to-when-youre-completely-over-it/"
 category: "music"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 17 Songs to Blast for the Days You're Just over It All ...
@@ -82,16 +82,16 @@ What do you listen to when you're just absolutely done?
 
 ## Related Posts
 
+- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
 - [steamy vid](https://music.allwomenstalk.com/these-steamy-music-videos-for-those-who-are-currently-single/)
 - [late night car rides](https://music.allwomenstalk.com/songs-to-listen-to-during-midnight-drives-with-your-man/)
 - [cheer me up songs](https://music.allwomenstalk.com/feel-good-songs-to-listen-to-when-you-need-to-cheer-up/)
-- [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
-- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
 - [songs about preparing](https://music.allwomenstalk.com/listen-to-these-badass-songs-while-applying-your-makeup/)
+- [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
+- [girls party songs](https://music.allwomenstalk.com/upbeat-party-songs-for-ladies-who-love-to-dance/)
+- [songs about the end of the world](https://music.allwomenstalk.com/songs-that-shocked-the-world/)
 - [new artist to listen to](https://music.allwomenstalk.com/amazing-artists-you-need-to-listen-to-right-now/)
 - [ballads from the 90s](https://music.allwomenstalk.com/powerful-love-songs-that-were-sung-back-in-the-90s/)
-- [wish you well amir obe lyrics](https://music.allwomenstalk.com/fresh-new-songs-youre-going-to-flip-over/)
-- [cool spotify hacks](https://music.allwomenstalk.com/spotify-tricks-that-every-music-lover-should-learn/)
 - [10 Songs to Get You through a Breakup ...](https://love.allwomenstalk.com/songs-to-get-you-through-a-breakup/)
 - [8 Songs to Feel Better after a Break up ...](https://love.allwomenstalk.com/songs-to-feel-better-after-a-break-up/)
 

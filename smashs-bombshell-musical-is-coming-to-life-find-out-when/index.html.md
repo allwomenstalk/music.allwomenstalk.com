@@ -1,9 +1,9 @@
 ---
 title: "SMASH's \"Bombshell\" Musical is Coming to Life! Find out when! ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Smash is back! Well, sort of. The (sadly) short-lived NBC series that starred Katharine McPhee and Megan Hilty is bringing Bombshell, the Marilyn Monroe…"
 url: "https://music.allwomenstalk.com/smashs-bombshell-musical-is-coming-to-life-find-out-when/"
 category: "music"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # SMASH's "Bombshell" Musical is Coming to Life! Find out when! ...
@@ -21,13 +21,13 @@ Will you be buying tickets?!
 - [who hates christmas](https://lifestyle.allwomenstalk.com/everyone-who-hates-christmas-rejoice-today-is-humbug-day/)
 - [sia today](https://funny.allwomenstalk.com/the-holiday-version-of-sias-chandelier-is-the-funniest-thing-youll-watch-today/)
 - [stories about kings and queens](https://lifestyle.allwomenstalk.com/of-the-craziest-kings-and-queens-in-history/)
-- [stalker's greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
 - [when is december 25th](https://lifestyle.allwomenstalk.com/things-that-happened-on-december-25th/)
-- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
-- [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
-- [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
 - [christmas snippets](https://travel.allwomenstalk.com/snippets-about-the-rockefeller-center-christmas-tree-through-the-ages/)
+- [brian littrell wedding ring](https://movies.allwomenstalk.com/the-backstreet-boys-documentary-trailer-is-here-its-everything/)
 - [mysterious disappearances in history](https://lifestyle.allwomenstalk.com/unsolved-disappearances-that-still-creep-us-out-today/)
+- [stalker's greeting](https://lifestyle.allwomenstalk.com/christmas-greetings-to-all-our-wonderful-stalkers/)
+- [everyone will remember that](https://lifestyle.allwomenstalk.com/things-everyone-will-remember-about/)
+- [unexplained artifacts](https://lifestyle.allwomenstalk.com/unexplained-ancient-artifacts-that-should-not-exist/)
 - [Bond Girls: the West Side Awaits!](https://allwomenstalk.com/bond-girls-the-west-side-awaits/)
 - [Bond Girls: the West Side Awaits!](https://allwomenstalk.com/bond-girls-the-west-side-awaits-3/)
 

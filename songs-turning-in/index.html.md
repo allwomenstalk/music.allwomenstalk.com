@@ -1,9 +1,9 @@
 ---
 title: "Songs Turning 10 in 2018 ..."
-description: "Viva La Vida by Coldplay; Shadow of the Day by Linkin Park; So What by P!nk; Hot N Cold by Katy Perry; Single Ladies (Put a Ring on It) by Beyonce; More ..."
+description: "Viva La Vida by Coldplay; Shadow of the Day by Linkin Park; So What by P!nk; Hot N Cold by Katy Perry; Single Ladies (Put a Ring on It) by Beyonce"
 url: "https://music.allwomenstalk.com/songs-turning-in/"
 category: "music"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Songs Turning 10 in 2018 ...
@@ -54,14 +54,14 @@ Are any of these songs still fresh in your mind? Which one shocked you the most 
 
 ## Related Posts
 
-- [only reminds of you](https://inspiration.allwomenstalk.com/only-reminds-me-of-you/)
+- [megan thee stallion songs](https://music.allwomenstalk.com/megan-thee-stallion-top-hits/)
+- [subtle love songs](https://music.allwomenstalk.com/top-love-songs-relationship-motivation/)
+- [These Artists Should Be on Your Gym Playlist ...](https://music.allwomenstalk.com/artists-that-should-be-on-your-gym-playlist/)
 - [5ewz_azddm4 -site:youtube.com](https://music.allwomenstalk.com/favorite-fourth-albums-from-female-artists/)
 - [kelly camia lu](https://music.allwomenstalk.com/songs-to-help-you-get-over-and-stay-over-him/)
-- [subtle love songs](https://music.allwomenstalk.com/top-love-songs-relationship-motivation/)
-- [17 Outstanding Operas Everyone Should Hear at Leas...](https://music.allwomenstalk.com/essential-operas-everyone-should-hear/)
-- [These Artists Should Be on Your Gym Playlist ...](https://music.allwomenstalk.com/artists-that-should-be-on-your-gym-playlist/)
 - [20 Taylor Swift Most Popular Songs Ever …](https://music.allwomenstalk.com/taylor-swift-most-popular-songs/)
-- [megan thee stallion songs](https://music.allwomenstalk.com/megan-thee-stallion-top-hits/)
+- [only reminds of you](https://inspiration.allwomenstalk.com/only-reminds-me-of-you/)
+- [17 Outstanding Operas Everyone Should Hear at Leas...](https://music.allwomenstalk.com/essential-operas-everyone-should-hear/)
 - [12 Dua Lipa Most Popular Songs Ever ...](https://music.allwomenstalk.com/dua-lipa-top-hits/)
 - [Why Dua Lipa Wrote 97 Songs Just to Pick the Best ...](https://allwomenstalk.com/dua-lipa-97-songs/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)

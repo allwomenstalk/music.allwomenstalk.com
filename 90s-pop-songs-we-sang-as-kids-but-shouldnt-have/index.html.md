@@ -1,9 +1,9 @@
 ---
 title: "7 90s Pop Songs We Sang as Kids but Shouldn't Have ..."
-description: "\"the Bad Touch\"- the Bloodhound Gang; “when the Lights Go out”- 5ive; “baby One More Time”-Britney Spears; \"C'est La Vie\"- B*Witched; \"Genie in a Bottle\" – Christina Aguilera; More ..."
+description: "\"the Bad Touch\"- the Bloodhound Gang; “when the Lights Go out”- 5ive; “baby One More Time”-Britney Spears; \"C'est La Vie\"- B*Witched"
 url: "https://music.allwomenstalk.com/90s-pop-songs-we-sang-as-kids-but-shouldnt-have/"
 category: "music"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 7 90s Pop Songs We Sang as Kids but Shouldn't Have ...
@@ -44,16 +44,16 @@ No matter how great the beat and singing may sound, it's the song's lyrics that 
 
 ## Related Posts
 
-- [indie arie boyfriend](https://music.allwomenstalk.com/empowering-songs-from-india-arie/)
-- [song about secretly loving someone](https://music.allwomenstalk.com/love-songs-every-girl-secretly-wishes-was-written-for-them/)
-- [wer singt das lied](https://music.allwomenstalk.com/realizations-from-natasha-bedingfields-unwritten/)
-- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
-- [no change of heart a change in me](https://music.allwomenstalk.com/broadway-songs-that-are-relatable/)
-- [the most live](https://music.allwomenstalk.com/incredible-live-performances-from-panic-at-the-disco/)
-- [meaningful country songs](https://music.allwomenstalk.com/inspirational-country-songs-for-when-youre-feeling-down/)
-- [ladies night songs playlist](https://music.allwomenstalk.com/amazing-songs-for-girls-night/)
 - [funny songs adult](https://funny.allwomenstalk.com/silly-songs-about-not-wanting-to-grow-up/)
 - [songs by fun band](https://music.allwomenstalk.com/unique-and-fun-band-and-song-names/)
+- [the most live](https://music.allwomenstalk.com/incredible-live-performances-from-panic-at-the-disco/)
+- [no change of heart a change in me](https://music.allwomenstalk.com/broadway-songs-that-are-relatable/)
+- [wer singt das lied](https://music.allwomenstalk.com/realizations-from-natasha-bedingfields-unwritten/)
+- [indie arie boyfriend](https://music.allwomenstalk.com/empowering-songs-from-india-arie/)
+- [ladies night songs playlist](https://music.allwomenstalk.com/amazing-songs-for-girls-night/)
+- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
+- [meaningful country songs](https://music.allwomenstalk.com/inspirational-country-songs-for-when-youre-feeling-down/)
+- [song about secretly loving someone](https://music.allwomenstalk.com/love-songs-every-girl-secretly-wishes-was-written-for-them/)
 - [10 Great Foreign Pop Songs ...](https://allwomenstalk.com/10-great-foreign-pop-songs/)
 - [7 Famous Songs That Send a Bad Message ...](https://music.allwomenstalk.com/famous-songs-that-send-a-bad-message/)
 

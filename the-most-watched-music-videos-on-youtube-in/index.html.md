@@ -1,9 +1,9 @@
 ---
 title: "The 10 Most Watched Music Videos on YouTube in 2015 ..."
-description: "Silento – Watch Me (Whip/Nae Nae); Adele – Hello; Fifth Harmony Feat. Kid in – Worth It; Sia – Elastic Heart; David Guetta Feat. Nicki Minaj & Afrojack – Hey Mama; More ..."
+description: "Silento – Watch Me (Whip/Nae Nae); Adele – Hello; Fifth Harmony Feat. Kid in – Worth It; Sia – Elastic Heart"
 url: "https://music.allwomenstalk.com/the-most-watched-music-videos-on-youtube-in/"
 category: "music"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # The 10 Most Watched Music Videos on YouTube in 2015 ...
@@ -55,15 +55,15 @@ Have you watched them all or just some? Going to catch up?
 ## Related Posts
 
 - [lyrics to gunpowder and lead](https://music.allwomenstalk.com/songs-thatll-tell-your-ex-to-go-love-himself/)
-- [benefit listening music](https://music.allwomenstalk.com/the-many-benefits-of-listening-to-music/)
-- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
-- [bloodstream stateless movie](https://music.allwomenstalk.com/romantic-songs-to-listen-to-this-valentines-day/)
-- [irish bands](https://music.allwomenstalk.com/the-best-irish-bands-to-listen-to-on-st-patricks-day/)
 - [songs for couples](https://music.allwomenstalk.com/the-most-romantic-songs-for-same-sex-couples/)
-- [epic music 2015](https://music.allwomenstalk.com/epic-music-videos-thatll-never-stop-being-awesome/)
-- [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
-- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
 - [song that describes my life](https://music.allwomenstalk.com/songs-that-describe-the-perfect-relationship-we-all-dream-about/)
+- [benefit listening music](https://music.allwomenstalk.com/the-many-benefits-of-listening-to-music/)
+- [epic music 2015](https://music.allwomenstalk.com/epic-music-videos-thatll-never-stop-being-awesome/)
+- [top 90s alternative](https://music.allwomenstalk.com/check-out-the-top-alternative-tunes-of-the-90s/)
+- [how do you lose your v card](https://music.allwomenstalk.com/songs-about-losing-your-virginity/)
+- [irish bands](https://music.allwomenstalk.com/the-best-irish-bands-to-listen-to-on-st-patricks-day/)
+- [bloodstream stateless movie](https://music.allwomenstalk.com/romantic-songs-to-listen-to-this-valentines-day/)
+- [cool cover songs](https://music.allwomenstalk.com/a-comprehensive-list-of-the-coolest-cover-songs-ever-created/)
 - [8 Surprising Music Video Stars ...](https://celebs.allwomenstalk.com/surprising-music-video-stars/)
 - [The 10 Hottest Dance Songs of 2011 ...](https://lifestyle.allwomenstalk.com/the-hottest-dance-songs-of/)
 

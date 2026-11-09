@@ -1,9 +1,9 @@
 ---
 title: "7 of the Best Bastille Songs out There ..."
-description: "Pompeii; Poet; Oblivion; Bad Blood; Of the Night; More ..."
+description: "Pompeii; Poet; Oblivion; Bad Blood; Of the Night"
 url: "https://music.allwomenstalk.com/of-the-best-bastille-songs-out-there/"
 category: "music"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 7 of the Best Bastille Songs out There ...
@@ -43,15 +43,15 @@ Bastille has such a unique sound that you don’t hear too often in music these 
 ## Related Posts
 
 - [closing time lyrics meaning](https://music.allwomenstalk.com/one-hit-wonders-from-the-90s-we-all-love/)
-- [divergent soundtrack tracklist](https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/)
+- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
+- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
 - [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
+- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
+- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
+- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
+- [divergent soundtrack tracklist](https://music.allwomenstalk.com/cool-songs-from-foreign-film-soundtracks/)
 - [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
 - [nigel tomm photography](https://lifestyle.allwomenstalk.com/breath-taking-artists-to-watch-in/)
-- [kendrick lamar delayed acl](https://music.allwomenstalk.com/amazing-unreleased-songs-from-your-favorite-artists/)
-- [list of disney love songs](https://music.allwomenstalk.com/disney-songs-that-will-make-you-believe-in-love/)
-- [broadway show songs](https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/)
-- [music for frozen](https://music.allwomenstalk.com/songs-from-the-frozen-soundtrack-that-are-always-on-repeat/)
-- [groups like pentatonix](https://music.allwomenstalk.com/a-cappella-groups-you-need-to-check-out-asap/)
 - [7 Best Songs from Commercials ...](https://allwomenstalk.com/7-best-songs-from-commercials/)
 - [7 Songs I like ...](https://allwomenstalk.com/7-songs-i-like/)
 
